@@ -10,13 +10,13 @@
 
 "-- or you're the President of The United States."
 
-Five minutes later and Naram Sin Nazari was downstairs, having the cup of coffee Lulu handed him the second he'd finished brushing his teeth. There was no time to shave. "At least you won't have morning breath," said Lulu, when they were still at the top of the stairs, kissing Naram, trying to wake him up. "And some women love a little stubble." She grinned at her husband before taking a grim look down the steps.
+Five minutes later and Naram Sin Nazari had just finished brushing his teeth. There was no time to shave. "At least you won't have morning breath," said Lulu at the top of the stairs, giving Naram a kiss, trying to wake him up. "And some women love a little stubble." She grinned at her husband before taking a grim look down the steps.
 
-"Great pep-talk Lu."
+"Great pep-talk Lu," he said.
 
 "You'll be fine."
 
- He sat down at the table in the kitchen, the first thing his wife ever designed, where he had breakfast every day. And just like every other day, opposite him at the table was a woman. Every day he admired the woman across from him. Every day he maintained a healthy fear of the woman there as well, believing that to be the bedrock of any good marriage. But every day that woman was his wife and not the Leader of The Free World.
+ He sat down at the table in the kitchen. It was the first furniture his wife ever designed, where he had breakfast every day. And just like every other day, opposite him at the table was a woman. Every day he admired the woman across from him. Every day he maintained a healthy fear of the woman there as well, believing that to be the bedrock of any good marriage. But every day that woman was his wife and not the Leader of The Free World.
 
 "Good morning Mr. Nazari."
 
@@ -140,8 +140,7 @@ A familiar boiling, clamminess flushed through Naram's core all the way to his t
 "That it? What does citizenship run these days? A couple hundred million or something? That's nothing. A shame. I didn't think she was that kind of president. Look. You sell me the device, your personal services, and whatever operation you've got attached to it and I'll take care of everything."
 
 ### Hours Earlier
-
-"How'd it go babe?" It was the First Gentleman.
+The President was staring out the window of Air Force One, thoughts flowing by with the gray clouds. Her phone rang. "How'd it go babe?" It was the First Gentleman.
 
 "Not well. I had to threaten him. I'm not -- I'm not that person."
 
