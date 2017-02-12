@@ -1,0 +1,11 @@
+body {
+  width: 50%;
+  margin: 0 auto;
+  font-size: 1.5em;
+  line-height: 2em;
+}
+
+h2 {
+  margin-top: 1em;
+  font-size: 3em;
+}

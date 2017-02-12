@@ -203,7 +203,7 @@ Naram exhaled and for the first time in weeks, he laughed. "Oh my god. That's, y
 
 "The point? Saving the world seems like enough of a 'point' to me."
 
-"Oh. You were serious about that? I just thought that was like the company motto or something. Listen Naram, if you're not charging, I don't really see a business model and it's not looking like a great investment to me. Unless you were thinking ads or something -- but that's a dark and dangerous rode so -- "
+"Oh. You were serious about that? I just thought that was like the company motto or something. Listen Naram, if you're not charging, I don't really see a business model and it's not looking like a great investment to me. Unless you were thinking ads or something -- but that's a dark and dangerous road so -- "
 
 "-- I don't think I can sell you the device then Mr. Anthony."
 -------------------------------------------------------
