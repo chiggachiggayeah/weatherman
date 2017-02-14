@@ -205,5 +205,61 @@ Naram exhaled and for the first time in weeks, he laughed. "Oh my god. That's, y
 "Oh. You were serious about that? I just thought that was like the company motto or something. Listen Naram, if you're not charging, I don't really see a business model and it's not looking like a great investment to me. Unless you were thinking ads or something -- but that's a dark and dangerous road so -- "
 
 "-- I don't think I can sell you the device then Mr. Anthony."
--------------------------------------------------------
-### Present Day. Over dinner
+
+### Early life
+
+There were times when it would rain at Naram's grandparents' home in Lexington, and just he and his grandmother would venture outside in their rubber boots and coats and marvel at the phenomenon. A child's fascination with rain can make it new for anyone who can see that look on their face. On one particular occasion Naram's grandfather was in the kitchen cooking a recipe a colleague from Shanghai had given him. "If it rains here, is it raining in China?" asked a young Naram Nazari.
+
+One thing Ziva Nazari never did for her grandson was water down the truth. One day you're stretching he truth so they can understand and the next you're telling them outright lies, she'd say. "Do you know what chaos is?" she asked the little boy.
+
+"When things are all over the place and nothing makes sense?" he replied.
+
+"Exactly. Weather is a chaotic system. A small change can produce a massive change elsewhere in the system."
+
+Naram crossed his arms and tapped his lip with an index finger. Naram did it because it's what his grandfather did when he wrote his papers and it seemed to be what all the best thinkers did when they were unraveling a particularly knotty problem. "So..." his voice trailed off as he followed the thought a little further. "So rain here, might mean a tornado in China?"
+
+His grandmother pulled him further under her umbrella as the rain picked up. "Perhaps. Or it might mean nothing at all."
+
+"Well that's boring."
+
+"Is it?" she said tapping the tip of his nose.
+
+"Yeah. It's only cool if something big happens."
+
+"Well one little thing will rarely lead to anything big. But a bunch of little things add up in wonderfully odd ways. That's part of chaos. It's impossible to know what little change did it. Maybe it's even wrong to say that any one thing is responsible at all." Naram's grandfather knocked on the back window that peered back into the yard. Dinner was ready. Ziva wrapped her arm around Naram's shoulders, and together they walked up the steps to the back porch.
+
+"Grandma, is it possible to control the weather? Make it rain?"
+
+She beamed proudly at her grandson. "Maybe one day. But just because you can make it rain, that doesn't mean you can control the weather."
+
+### Years Later. Naram has just built the device
+
+Everything was good and then it wasn't. On an unremarkable Tuesday, when the sky wasn't sobbing like it should've -- in hindsight -- but neither was it even *that* blue, something in the core of America snapped and nothing made sense. School buses, that day, erupted into columns of fire before they could even make it in for first bell. Husbands went to the grocery store for milk and never returned. Contrary to what they were told, students witnessed their final exams turn into life and death situations. Planes fell from the sky like the crooked paper machinations a child throws out a window, testing for distance. Churches burned. And mosques. And synagogues. At the end of what everyone wished had been a run-of-the-mill Tuesday, too many people were gone to count exactly. Everyone tear-stained should left pleaded with, and screamed at their televisions for it to say something they could make sense of. That never came.
+
+Eleanor Reed, President of the United States slammed the door to the Oval. She placed her face straight down on her desk and cried. She cried for the horrific loss of lives she was sworn to protect. Yet she also cried, because an era, an era of peace, was over.
+
+The only sensible thing left to do was to begin the search for answers. Days passed without any. The country questioned known radicals of all stripes and creeds. None of them knew much of anything. The kinds of connections to radical cells that could get you interrogated became more tangential and gossamer. Connections that sounded like the prefaces to the bad stories told over drinks at dinner. My friend's cousin's stepsister's chiropractor...
+
+Until one man spoke and his name just happened to be Muhammad Ali. He'd been born in America and he didn't know much. He said the unrest, the seeds of this grim Tuesday, they could lie in the rumors about the device they were building.
+
+"What device?" asked the President.
+
+"The weather machine," he replied, not really believing she didn't know.  
+
+For Eleanor, still, nothing made sense.
+
+An hour later Eleanor's Chief of Staff pulled up a podcast on his laptop. "About a week ago it aired." he said. "Aired is a generous term. It was thrown up on the internet. A couple of young guys out of MIT. The one is a grad student I think. We didn't think anything of it. Their names are Stephen Frank and Naram Sin Nazari."
+
+Stephen Frank cleared his throat. "Good evening, or should I say good morning ladies and gentleman, this is Let Me Be Frank, with me Stephen Frank. I'm here with Naram Nazari ladies and gentleman. You probably have no clue who the hell he is now but you will soon because he's built -- wait -- Naram why don't you tell our lovely audience what you did."
+
+A much quieter voice quivered into existence. "Um...hey. I'm Naram. I g--guess you already knew that uh...but a weather machine. I built a weather machine. *Am* building a weather machine."
+
+"Ok, how long is this?"
+
+"An hour."
+
+"Do we even know if it works?"
+
+"We have no reason to believe it works yet. Or ever will. A lot of guys are saying it's the same cloud-seeding tech we already have."
+
+"Well send a guy over there ok?" (a spy, Edison style)
