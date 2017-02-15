@@ -238,28 +238,104 @@ Everything was good and then it wasn't. On an unremarkable Tuesday, when the sky
 
 Eleanor Reed, President of the United States slammed the door to the Oval. She placed her face straight down on her desk and cried. She cried for the horrific loss of lives she was sworn to protect. Yet she also cried, because an era, an era of peace, was over.
 
-The only sensible thing left to do was to begin the search for answers. Days passed without any. The country questioned known radicals of all stripes and creeds. None of them knew much of anything. The kinds of connections to radical cells that could get you interrogated became more tangential and gossamer. Connections that sounded like the prefaces to the bad stories told over drinks at dinner. My friend's cousin's stepsister's chiropractor...
+The only sensible thing left to do was to begin the search for answers. Days passed without any. The country questioned known radicals of all stripes and creeds. None of them knew much of anything. The kinds of connections to radical cells that could get you interrogated became more tangential and gossamer. Connections that sounded like the prefaces to the bad stories told over drinks at dinner. My friend's cousin's stepsister's chiropractor told my cousin's boyfriend...
 
-Until one man spoke and his name just happened to be Muhammad Ali. He'd been born in America and he didn't know much. He said the unrest, the seeds of this grim Tuesday, they could lie in the rumors about the device they were building.
+Eleanor imagined a spider freely roaming over the country, without any way to guess who next might be caught in its web. When there's a spider and you've got no idea how to deal with it directly, one sensible thing to do is to take a glass jar and place it over an area, including the spider, until the spider yields or dies.
 
-"What device?" asked the President.
+### The machine works for the first time and the mysterious man (The Spider)
+"Son are you safe?" Naram was talking with his father on his way into the lab.
 
-"The weather machine," he replied, not really believing she didn't know.  
+"Yes, dad. You're worrying too much. It's an immigration halt. She's not interning people from the Middle East or anything."
 
-For Eleanor, still, nothing made sense.
+"It's a witchhunt Naram. And a witch hunt rarely ends without someone getting burned."
 
-An hour later Eleanor's Chief of Staff pulled up a podcast on his laptop. "About a week ago it aired." he said. "Aired is a generous term. It was thrown up on the internet. A couple of young guys out of MIT. The one is a grad student I think. We didn't think anything of it. Their names are Stephen Frank and Naram Sin Nazari."
+"It won't be me dad. I had nothing to do with it." Naram had arrived. He managed to fish his keycard out of his pocket despite the four coffees he was holding. The coffees were unruly if he used only one hand, so he ran the keycard in front of the sensor using his teeth to hold it. The system beeped approvingly and a flash of green issued from the sensor as the door to his lab slid open.
 
-Stephen Frank cleared his throat. "Good evening, or should I say good morning ladies and gentleman, this is Let Me Be Frank, with me Stephen Frank. I'm here with Naram Nazari ladies and gentleman. You probably have no clue who the hell he is now but you will soon because he's built -- wait -- Naram why don't you tell our lovely audience what you did."
+"A witch hunt doesn't end until somebody burns Naram. And that isn't necessarily the person responsible. She'll have to give them someone."
 
-A much quieter voice quivered into existence. "Um...hey. I'm Naram. I g--guess you already knew that uh...but a weather machine. I built a weather machine. *Am* building a weather machine."
+Naram rolled his eyes and meted out silent hellos to his everyone in the lab. Amongst the faces gathered there was one he didn't recognize.
 
-"Ok, how long is this?"
+"Listen dad, I think it'll be fine. I think we're passed the whole blame anyone who looks like they might be muslim phase in American politics. She's not that kind of President." He shook the new man's hand. "Li - listen, dad, just -- look I gotta go. I'll call you later if you want but I gotta go, alright? Bye." Naram's advisor, Dr. Holm, was brimming over with electricity.
 
-"An hour."
+"Naram, this is Hank Thompson. Writer for the Boston Globe. He wants to cover your device!" Naram looked the man over.
 
-"Do we even know if it works?"
+"No."
 
-"We have no reason to believe it works yet. Or ever will. A lot of guys are saying it's the same cloud-seeding tech we already have."
+"No?" repeated Dr. Holm. He scurried uneasily after Naram who'd already drifted toward some task that waited on the opposite edge of the room. "No?" he whispered again into Naram's ear. He looked back at the reporter, smiled. "Are you nuts. This would be great for you. You'd be famous. Your career would...you do this and the machine works and you'd never have to worry about anything ever again."
 
-"Well send a guy over there ok?" (a spy, Edison style)
+"And if it doesn't? No, I don't want that kind of pressure and this guy just shows up out of nowhere? I don't, something about him. Just no."
+
+Dr. Holm turned to the camera and notepad-laden reporter again, smiling a bit less intensely. "Well, it's your decision. I won't talk to him either. And I'll go and take him out of here but I just want to get my two sense in and say that I think this is a very bad idea."
+
+"That's what you said about the machine at first too." Dr. Holm chuckled and walked back to Hank Thompson.
+
+"And it still isn't quite working is it?" he called back, grinning. Sometimes the inconsequential words are the sharpest.
+
+After the professor and the reporter from out of the blue were gone, Naram got up from the workbench and walked over to where Jin was busy soldering a Gordian knot of wires and circuitry. "Is this going to work?" he asked over the creschendoing chaos of sparks. Jin stopped and tilted her mask back. She looked around the lab. The dry-erasable walls were covered in arcane tomes worth of equations and dead-of-night thoughts, so much so that in some places it was difficult to see the white underneath. DQ and Isabel talked in one corner, with a lot of waving arms and erasures. Hunks of machinery lie in heaps in intervals around the center of the room where the device stood, pulsing solemnly. "It's a happy disaster," said Jin.
+
+"That is not really what I was looking for. Gotta be honest. I feel kinda worse now actually."
+
+"I said it was happy!" she responded with her usual effervescence.
+
+"But also a disaster."
+
+"Does this not look like a disaster to you?" she asked Naram, waving her soldering iron a bit carelessly, indicating the room which looked like it'd just hosted the running of the bulls.
+
+"Sure, sure. It's a mess. But disaster? You've already lost hope."
+
+Jin smirked as she flipped her mask down and up a few times, playfully. "No. I never had too much hope in this thing. It's crazy! I had hope in you though. Even if this thing never claws its way out of all this electro-junk to make snow in July, I'll have some fun working on this thing. I mean, how many other times am I gonna get to do something even half as straight-out-of-a-bad-science-fiction-movie as this? Now go. *I'm* actually busy trying to make this thing run." Jin clanked her mask down abruptly. "Ow. My nose." The two laughed and then Jin went back to work.
+
+### Months Later. The Machine runs
+
+The machine was shaking the roof. Just the four of them gathered underneath a cloud-smothered moon, DQ, Isabel, Jin, and Naram. "Should we turn it off?" DQ screamed over the din. He peered down through the roof-hatch into the lab. A pale, blue, ghostly light painted his face like he was glaring straight into the mouth of the underworld and some world-eating monstrosity was trying to claw its way across the breach. Isabel stared at the screen of the clunky controller attached to the main body of the machine via a thick bundle of wires.
+
+"Readings are normal," she said.
+
+"Well they're usually pretty bad so..." quipped Jin.
+
+"I don't know guys," replied DQ. "It's...thrashing."
+
+Naram wasn't really listening. He couldn't take his eyes off the sky. "Maybe it needs more power," he said quietly for no one but himself.
+
+"You're not," Jin started, but Naram brushed passed her and Isabel and DQ and descended into the lab. The machine had etched out a place for itself in the refuse surrounding it. Seeing the way it was wobbling off-kilter in this ever more eccentric and doomed orbit, it reminded Naram of the time his grandparents' washing machine had been on the verge of catastrophic failure and in the process of the collapse had done quite a number on the basement. He shrugged it off. The machine was going to make it snow whether it was on board or not, and if it insisted on taking ninety-percent of the lab with it then so be it. There was, however, an immediate setback.
+
+Every outlet in the lab was connected one way or another to the machine.
+
+"So...what's up?" Naram turned and there was Jin, just touching down from the roof.
+
+"I'm stuck."
+
+"Here? On this? No, no, no, no, no. What's the issue?"
+
+Naram extended his arms. "Do you see any outlets? Or, for that matter, and cords that might be able to run out here and down to the physics lab?"
+
+Jin blew a raspberry into the air. "As usual Mr. Nazari you've latched onto the wrong problem."
+
+A handful of minutes later they were in one of the staff parking lots.
+
+"You're crazy," said Naram, both hands clasping his head as, within its walls, he tried to figure if he had any shot at not spending the night in a cell.
+
+"You're being dramatic. We're *borrowing* it." Jin was saying this as she hefted the battery out of some anonymous professor's car.
+
+"That's a charitable definition of what we're doing right now. If I were an entirely neutral party I might say that we are pilfering -- "
+
+"-- nice SAT word Naz -- "
+
+"-- thank you, but I might say something closer to the truth which is that we're pilfering a car battery and then stealing away in the dead of night, for probably nefarious ends. Point is, it doesn't look good. Most people would say we ought to be thrown in jail."
+
+"Most people are building a weather machine," she said finally.
+
+Back at the lab, they shut off the machine and connected their ill-gotten battery. Naram signaled Isabel to activate the device. It jerked to life, as if defibrillated, and the light grew so pupil-dillatingly bright and hot that they each threw up their hands to shield their eyes. And then it shut off. When they opened their it was so dark, it  was like they'd been dropped in a vat of ink.
+
+"It was a good run Naram," said Isabel.
+
+Jin scoffed. "Well we could at least go check for fuck's sake!" she said, climbing up through the hatch in the ceiling. The others followed, except for Naram. Somehow it was better to just not see. His heart was so low then, just staring at the coffee-speckled carpet. They weren't saying anything though. He looked up and felt a flicker in his chest. The moon, so brilliant before, was barely visible behind a deep veil of cloudy sky. Furthermore, goosebumps burrowed up on his skin, as frigid air sunk down through the hatch.
+
+And then it began to snow.
+
+With the falling of each and every new flake Naram gained a bit more belief that this was really his dream, finally congealing into reality. He grasped the rung of the ladder to the roof dreamily. For a moment he forgot exactly how one goes about climbing a ladder, and clumsily strutted upwards. Out on the roof, he felt unrooted in time and tossed into an era that had never existed. People out on the streets stared up in their shirts and shorts and skirts, in awe. Jin slipped her hand into his, and stared up at the sky as well. It was Naram's bad happen to exit from moments like that one, and make some attempt to preserve it forever, rend it into the most impenetrable corners of himself. Naram couldn't recall even an instant when he had ever been happier. He kissed Jin's hand.
+
+That was the last time he saw Jin.
+
+(because she, as an immigrant, gets effected by the legislation the government is developing)
+###
