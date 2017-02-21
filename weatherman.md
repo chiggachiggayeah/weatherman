@@ -1,5 +1,7 @@
 ## The Weatherman
-
+--
+Long ago, there was a wizard.
+--
 "Hon, you're going to want to get up."
 
 "Hon, I very much do NOT want to get up right now. Please...what time is -- it's not even six. At least give me another hour."
@@ -232,30 +234,12 @@ His grandmother pulled him further under her umbrella as the rain picked up. "Pe
 
 She beamed proudly at her grandson. "Maybe one day. But just because you can make it rain, that doesn't mean you can control the weather."
 
-### Years Later. Naram has just built the device
-
-Everything was good and then it wasn't. On an unremarkable Tuesday, when the sky wasn't sobbing like it should've -- in hindsight -- but neither was it even *that* blue, something in the core of America snapped and nothing made sense. School buses, that day, erupted into columns of fire before they could even make it in for first bell. Husbands went to the grocery store for milk and never returned. Contrary to what they were told, students witnessed their final exams turn into life and death situations. Planes fell from the sky like the crooked paper machinations a child throws out a window, testing for distance. Churches burned. And mosques. And synagogues. At the end of what everyone wished had been a run-of-the-mill Tuesday, too many people were gone to count exactly. Everyone left pleaded with, and screamed at their televisions for it to say something they could make sense of. That never came.
-
-Eleanor Reed, President of the United States slammed the door to the Oval. She placed her face straight down on her desk and cried. She cried for the horrific loss of lives she was sworn to protect. Yet she also cried, because an era, an era of peace, was over.
-
-The only sensible thing left to do was to begin the search for answers. Days passed without any. The country questioned known radicals of all stripes and creeds. None of them knew much of anything. The kinds of connections to radical cells that could get you interrogated became more tangential and gossamer. Connections that sounded like the prefaces to the bad stories told over drinks at dinner. My friend's cousin's stepsister's chiropractor told my cousin's boyfriend...
-
-Eleanor imagined a spider freely roaming over the country, without any way to guess who next might be caught in its web. When there's a spider and you've got no idea how to deal with it directly, one sensible thing to do is to take a glass jar and place it over an area, including the spider, until the spider yields or dies.
-
 ### The machine works for the first time and the mysterious man (The Spider)
-"Son are you safe?" Naram was talking with his father on his way into the lab.
+Naram had arrived. He managed to fish his keycard out of his pocket despite the four coffees he was holding. The coffees were unruly if he used only one hand, so he ran the keycard in front of the sensor using his teeth to hold it. The system beeped approvingly and a flash of green issued from the sensor as the door to his lab slid open.
 
-"Yes, dad. You're worrying too much. It's an immigration halt. She's not interning people from the Middle East or anything."
+Amongst the faces gathered there was one he didn't recognize.
 
-"It's a witchhunt Naram. And a witch hunt rarely ends without someone getting burned."
-
-"It won't be me dad. I had nothing to do with it." Naram had arrived. He managed to fish his keycard out of his pocket despite the four coffees he was holding. The coffees were unruly if he used only one hand, so he ran the keycard in front of the sensor using his teeth to hold it. The system beeped approvingly and a flash of green issued from the sensor as the door to his lab slid open.
-
-"A witch hunt doesn't end until somebody burns Naram. And that isn't necessarily the person responsible. She'll have to give them someone."
-
-Naram rolled his eyes and meted out silent hellos to his everyone in the lab. Amongst the faces gathered there was one he didn't recognize.
-
-"Listen dad, I think it'll be fine. I think we're passed the whole blame anyone who looks like they might be muslim phase in American politics. She's not that kind of President." He shook the new man's hand. "Li - listen, dad, just -- look I gotta go. I'll call you later if you want but I gotta go, alright? Bye." Naram's advisor, Dr. Holm, was brimming over with electricity.
+Naram's advisor, Dr. Holm, was brimming over with electricity.
 
 "Naram, this is Hank Thompson. Writer for the Boston Globe. He wants to cover your device!" Naram looked the man over.
 
@@ -323,7 +307,7 @@ A handful of minutes later they were in one of the staff parking lots.
 
 "-- thank you, but I might say something closer to the truth which is that we're pilfering a car battery and then stealing away in the dead of night, for probably nefarious ends. Point is, it doesn't look good. Most people would say we ought to be thrown in jail."
 
-"Most people are building a weather machine," she said finally.
+"Most people aren't building a weather machine," she said finally.
 
 Back at the lab, they shut off the machine and connected their ill-gotten battery. Naram signaled Isabel to activate the device. It jerked to life, as if defibrillated, and the light grew so pupil-dillatingly bright and hot that they each threw up their hands to shield their eyes. And then it shut off. When they opened their it was so dark, it  was like they'd been dropped in a vat of ink.
 
@@ -333,9 +317,265 @@ Jin scoffed. "Well we could at least go check for fuck's sake!" she said, climbi
 
 And then it began to snow.
 
-With the falling of each and every new flake Naram gained a bit more belief that this was really his dream, finally congealing into reality. He grasped the rung of the ladder to the roof dreamily. For a moment he forgot exactly how one goes about climbing a ladder, and clumsily strutted upwards. Out on the roof, he felt unrooted in time and tossed into an era that had never existed. People out on the streets stared up in their shirts and shorts and skirts, in awe. Jin slipped her hand into his, and stared up at the sky as well. It was Naram's bad happen to exit from moments like that one, and make some attempt to preserve it forever, rend it into the most impenetrable corners of himself. Naram couldn't recall even an instant when he had ever been happier. He kissed Jin's hand.
+With the falling of each and every new flake Naram gained a bit more belief that this was really his dream, finally congealing into reality. He grasped the rung of the ladder to the roof dreamily. For a moment he forgot exactly how one goes about climbing a ladder, and clumsily strutted upwards. Out on the roof, he felt unrooted in time and tossed into an era that had never existed. People out on the streets stared up in their shirts and shorts and skirts, in awe. Jin slipped her hand into his, and stared up at the sky as well. It was Naram's bad habit to exit from moments like that one, and make some attempt to preserve it forever, rend it into the most impenetrable corners of himself. Naram couldn't recall even an instant when he had ever been happier.
 
-That was the last time he saw Jin.
+### Knocking at the Golden Door
 
-(because she, as an immigrant, gets effected by the legislation the government is developing)
-###
+There's a harpist on retainer at Frank and Fox. Steve Frank's restaurant in New York where excess is always on the menu. A joke of Steve's. He also had joked that even if that bothers you, after a drink and succumbing to the seduction of his contractually obligated harpist, you won't care. There aren't any prices on the menu, since the assumption is that money is no object.
+
+Steve was quite full after finishing half his gargantuan steak. Naram hadn't eaten anything since he'd lost his appetite just about six hours earlier when, on live television during his show, Steve denounced Naram as a traitor in front of a panel of government leaders.
+
+"Do you think the name kind of sounds like Frankenfox?", started Steve. "Like some undead, pieced-together, vulpine horror? I don't know I've just been thinking about it lately and it's been -- "
+
+"-- bothering you? Maybe like it bothered me when you said I was the kind of immigrant that you might be *for* deporting."
+
+"Oh come on Naram. It's TV."
+
+"Oh so it doesn't matter? I should be okay with you insinuating I'm a terrorist?"
+
+"You're getting butthurt over nothing. Obviously I don't really think you're a terrorist. It's what the people want to hear. You have to give it to them. I'm not going to disagree with the President. She's one of us."
+
+"That's it? That's as far as speaking truth to power goes for you?"
+
+"What do you want Naram? Me to say the kinds of things I'd have said in college? Guess what: that's not exactly good television. And what for? Look around. You see how good things are. How they've improved since we were just kids in college, running our mouths for anyone who'd listen. Things aren't perfect but for the most part things in the world are good Naram. Except for the floods and the storms. But you're fixing that."
+
+"The world is burning."
+
+Steve leaned forward into the wilted light of the candle on the table. "Let it. Fuck 'em is what I say. A healthy America is good for the world and we didn't get to where we are now by helping everyone that came knocking. We'll help eventually, obviously. We'll do what we can in the meantime. But you don't mess with a good thing."
+
+"Fuck 'em? I'm one of *them* Steve."
+
+Steve Frank scoffed and paused to take a large gulp of his wine, paired with his meal via a world-renowned somelier, also on retainer. "You're not. You're practically American." Naram stared across the table looking for his friend, who seemed nowhere to be found. Naram stood from the table.
+
+"Give me your tired, your poor, Your huddled masses yearning to breathe free, The wretched refuse of your teeming shore. Send these, the homeless, tempest-tossed to me, I lift my lamp beside the golden door,” Naram recited. "Enjoy the music."
+
+
+### Chasing Ghosts (I think this is the end)
+
+(maybe there should be something there, but these are the old machines)
+The squadron stormed the building, rushed in, threw open the doors...and there it was. It looked a bit like an alien moon, a hundred foot sphere fraught with buzzing and blinking electrical components, the entire surface composed of honey comb divots, deep like impact craters. Just to stand in the same room with the device was to have a more complete understanding of its sheer power. An inaudible wave issued forth from the core of the thing every few seconds. One couldn't see it but one could feel it in the hardware of their chest, and from there it would resonate outward through the extremities, ultimately leaving one slightly off-kilter for a microsecond or two.
+
+Eleanor exhaled shakily. Could this be happening? It seemed too simple. The nightmare was contained, the spider, now situated in plain sight underneath the jar. She walked outside. The sky was writhing. Where sun had bathed everything, there was now an unassailable veil of melancholy gray. The winds and the tumult ceased for a second or two, all sound sucked out of the world by some cosmic vacuum. And then it began to rain. It didn't stop.
+
+### Project Witch Doctor
+
+"Hurry up Franklin. I've got five minutes." Franklin was close to the floor, vertically challenged, no more than a couple inches over five feet. He was also roundish, and clumsy, and still nervous around the President. It was only a couple of weeks into the administration, to be fair. Nevertheless, he tripped over his feet to her desk, and across it he slid a file, stuffed to the height of turkey club where the sandwich-maker has been incredibly withholding. Eleanor Galloway looked at the urgently red stamped title and scoffed.
+
+"You're not serious."
+
+"Not normally. But there have been...developments."
+
+Eleanor's eyes almost rolled themselves. "Fine." She flipped through the pages. First, she was angry at having her time wasted. When she turned the last photograph over, she was confused. "Is it possible?"
+
+"Short answer: maybe. The Canadians certainly think so."
+
+"The Canadians? But...them?" A staffer came to the door.
+
+"Mrs. President, CNN is here for the Refugee Piece."
+
+"Yeah, it'll just be a minute," said Eleanor.
+
+Franklin started up again. "Our people picked up some disturbing communications. And it's crazy given how New Agey and frankly strange that era in our defense program was but..well they specifically used the phrase 'weather modification device'."
+
+"...modification? Jesus."
+
+"My thoughts exactly. They don't know we know. The crux of the intercepted communication is really that the PM has sent a couple of agents out to find and retrieve something called Project Witchdoctor. Now we don't know what it is exactly, but it has something to do with modified weather and it was serious enough for them to not want to tell us so the worst guess is that it's some kind of weather weapon or somesuch."
+
+"The Canadians?" Eleanor was having particular difficulty stomaching that detail. "Jesus. What about our pact to tell each other about that stuff, huh?"
+
+"They must not care."
+
+"What about NATO?"
+
+"Same."
+
+"Well follow their agents and let's see what happens. Fuck. The Canadians?" Eleanor got up from her desk and walked to the door just as the staffer returned. Franklin left behind her.
+
+- The Canadians don't actually know if Idris Klein has anything, but when they show up, there's this massive overreaction she's got, prompting things to quickly spiral out of control
+
+### Thesis Defense
+
+Naram-Sin Nazari - Naz for short but he really just liked to be called Naram - Naram was walking home from a bar, happily drunk. He'd just earned his master's degree, in Meteorological Adaptation from the Massachusetts Institute of Technology. It had been long nights and hours of research and planning. But it had also been a lot of fun. His head was too foggy to dredge up each fond memory individually, but he could recall a wash of smiling faces and shenanigans he probably couldn't have gotten into had he stayed home, in Kuwait City. And now he was going back. To sell air conditioners. More on that later.
+
+Naram fumbled around with the key to his apartment, managing to get the door to open finally on the fifth try. His apartment was like a crypt. Impossibly black, unnervingly quiet, and tinged by the faint odor of decay. Vladimir hadn't taken out his garbage before he left. Naram chuckled. The Russian had been a terrible roommate from the very first day.
+
+Even in the absolute dark, Naram could sense that something about that main room had changed since he'd left. He felt like he wasn't alone. His heart began to pound. "Hello!" he called out into the black apartment. Nothing. He ran his hand over the wall next to the door for the light switch and as soon as his finger hit the knobbly protrusion of plastic, he flipped it.
+
+The something that had changed was a box, just shorter than he was, but maybe three times wider, situated a foot to the left of the true center of the living room. Scrawled on the side in black permanent marker were the words: Project Witchdoctor. He recognized the handwriting as that of his thesis advisor, Idris Klein, probably the world's foremost expert in the esoteric and shunned field of Meteorological Adaptation. His phone rang just then, and sure enough, it was Idris.
+
+Naram felt sick. (jump?)
+
+"Hello?" he said into the phone.
+
+"Oh come on Naram, you know it's me, no need for the hellos and all that. Are you drunk? Well, I should ask more precisely, how drunk are you?"
+
+Naram tossed his jacket on the ground. "Seven on a ten point."
+
+The voice on the other end halted. "Not great. Please start drinking some water or jogging around in place or something. I'll need you sober. That said, one benefit of your present lack of sobriety is that you'll probably not be too terribly upset with me when I tell you that I've decided not to accept the defense of your thesis. Presently. I will, but first there's a kind of *quid pro quo* scenario."
+
+"You're not serious."
+
+"Terribly. Fatally so even. I need you to take what's in this box somewhere. I'd explain more but I can't. I doubt they're listening in but you know, never underestimate your enemies and all that."
+
+The room took on a distinctly, Salvador-Dalian quality, which is to say that everything seemed to melt and twirl in flagrant violation of the nature of reality, and Naram rushed into the bathroom and threw up into the toilet. To his dismay this is also when he discovered that frequently absent-minded Vladimir had also neglected to flush. Naram ripped a towel from the cabinet and wiped his face vigorously. "Who?" he asked.
+
+"The Feds!"
+
+"What! Holy shit. FBI?"
+
+"No."
+
+"CIA?"
+
+"No. CSI."
+
+Naram walked back to the box. "What, like the show? What're you talking about?"
+
+"Canadian Security Intelligence. Service. So CSIS I guess."
+
+"Wait, hold on. The Canadians?"
+
+"Look I can't really get into it now. All I can say is there's more info in the box. It'll tell you how to find me. Tell no one. Don't talk to anyone, but especially don't talk to anyone you suspect might be even slightly Canadian."
+
+"Look, I'm still confused, and I'm not sure I -- "
+
+"-- there's a moving van out back. I left it in your lot. I wouldn't have involved you if there was more time, but there isn't. You should leave within the hour." Idris hung up. Naram stared at the box and wondered how he was going to get this thing down four flights of stairs.
+
+### Confederates
+
+There was loud knocking on the door, whilst Naram attempted to clean up the variously sticky and wet situation in the bathroom. His heart leaped against the walls of his chest. In his panic he automatically reached for a weapon. As he headed to the door he noticed that he had grabbed the plunger.
+
+"Who is it?" he called shakily. He flipped the plunger over, so the rubber end was pointing up. At the very least, he figured, if this was a small Quebecois hit squad, he might be able to incapacitate the first one via a plunger to the face, and then the rest of them would be so caught up puzzling over the sheer absurdity of what had just happened that he just might be able to sneak through and make a break for it. He didn't actually like the plan, but he was more reluctantly committed to it with every step.
+
+"Naram just open the door please." It was Jin. It *sounded* like Jin. But how could he know? He was, after all, in a pretty unprecendented situation and there was no telling how skilled the Canadians actually were since he'd never heard of the CSIS. Who's to say it wasn't a recording, or some device that enabled them to say anything they wanted and sound exactly like Jin? He'd seen that in a movie once. He opened the door but not all the way, just enough for him to see out into the hall with one eye.
+
+"Yes?"
+
+"Seriously?" It was indeed Jin. With a suitcase. And also DQ.
+
+"What're you doing here?" he asked, opening the door, and then rushing passed them into the room, so he could awkwardly put himself between them and the box.
+
+"Yeah. We know about the box Naram," said Jin. DQ had nothing but a backpack and she tossed that onto the ground before diving onto the already ailing futon. The futon groaned as she touched down.
+
+"I thought you were going back to Shanghai." said Naram to Jin.
+
+"I was. *Am*. But then...this. She called us both." DQ waved from the futon.
+
+"Yeah. So, you weren't gonna say bye? I mean, you knew I'd be over at The Spot. You coulda, I mean, I was waiting for -- "
+
+Jin's eyes veered off to a corner of the ceiling. " -- I know. I was going to, there's just...it's a lot. I've been thinking about a lot of things and...I wasn't sure if...I don't even know if we -- "
+
+DQ flipped over on the futon and exhaled loudly. " -- Oh my god. Just date already."
+
+"Shut up," said Jin, casting an incendiary glare in DQ's direction.
+
+"Well," said DQ, "as much as this is really turning out to be one of the better episodes in this little Soap Opera of yours, I'm of the opinion that we should get this thing in the van and get on the road."
+
+### A Cold Day in July
+
+(the flashback should be about a specific incident)
+
+DQ was driving. Jin was sitting in the passenger seat. Naram was trying to sleep it off. He fell asleep almost as soon as DQ pulled off the lot. The last piece of the real world that he took with him into his dreams was the constant buzz of the engine, which morphed, layers of sleep down, into the sound that filled his entire childhood. The Air Conditioner.
+
+"Sick of the heat? Come to Fuwaz Nazari Air Conditioning Solutions, to get all of your air conditioning needs solved!" ran the commercial. Nazari Air Conditioning Systems was the third most popular line of air conditioners in Kuwait City. There were only three. To sum it up simply, growing up for Naram had always been...tense.
+
+"What am I not doing?" asked Fuwaz, of nobody in particular. Fatma, his wife, cleaned up the dinner and Naram helped. This became something of a ritual after the sunny days of the air conditioner business were over. Fatma and Naram would tend the weeds of life, cleaning and whatnot, while Fuwaz stewed. That day, Fuwaz was upset because there was a new player in the local air conditioner game. A wunderkind and a foreigner. Liam and Sons.
+
+"You know, I don't even think he's got sons. He's projecting this image of an established family business and it's all a lie!"
+
+"A total lie" said Fatma. She glared at Naram to get him to say something.
+
+"That guy's a faker dad."
+
+"Oh don't patronize me," Fuwaz said with a humph. "They think *he's* going to get The Contract."
+
+Fuwaz was obsessed with the contract. It didn't make much sense. Fuwaz probably mentioned The Contract, Naram figured, something like ten times a day.  It became his goal in life to obtain this contract, yet there was no reason for him to expect that it was even a remote possibility. The Contract was a contract with the government of Kuwait City to build a rainmaking system. The area, in recent years had been stricken by deleterious droughts. Abu Dhabi already had a rainmaking system, though it wasn't clear if it even worked. Fuwaz wasn't all too concerned with the difficulties of building an effective system or actually bringing relief to those suffering during this spectacularly arid age in the region. Fuwaz was concerned with the fact that The Contract was worth three billion dollars. USD.
+
+"They're similar. It's what I keep telling people. If you think about it, air conditioners are really atmospheric modifiers, just on a small scale. Same thing. Basically." Fuwaz would say this a couple times a day as well. In his fervor bordering on obsession, Fuwaz sent Naram to Abu Dhabi to intern in the government, specifically with the department responsible for the ionizers. A Cold War spy kind of setup wherein Naram was supposed to blend in and return with all of the Abu Dhabian secrets. Undetected, naturally. Naram was avidly interested in science of all sorts, but was not at all on board with the rainmaker espionage scheme. Of course he went anyways, he had no choice, but he was hardly successful.
+
+Which meant added pressure when it was time for Naram to go to school. Fuwaz, historically, held a staunch, anti-western worldview. But when Naram got into MIT something changed. "You can save the company," he said to Naram on the day he was leaving. "Get your degrees and come back and we'll reinvent Nazari Air Conditioning Systems. We can even call it Fuwaz and Son's. Once we get that contract, we'll call it whatever you want."
+
+Tires shrieked and tossed Naram's drunken bumble through the past directly into the proverbial Shredder. Groggily, Naram sat up and looked out the windows of the van. He couldn't see anything but fog in every direction. "Where are we?" he asked.
+
+"No idea," said Jin. "DQ has no idea."
+
+"Well I'm sorry that *DQ* can't see a gd thing! Little miss fall asleep and leave DQ by herself to drive in the middle of the night when she's just as tired as you are and -- "
+
+"How close are we, time wise?"
+
+DQ checked the map on her phone. "Fifteen minutes. Christ dude, are you gonna answer that?"
+
+Naram was confused at first. Then, with bloodflow increasing, and sensation returning to his extremities, he noticed a gentle vibration on his thigh. His phone was ringing.
+
+(We see Fuwaz resentment for jiddo, who went into philosophy)
+
+(this ends with them meeting Idris in the fog and her giving them the dossier as well as sending them Oslo Diggins)
+
+### Touchy Subject
+
+(You're introduced to the agents and they talk about what they both think about Winston)
+
+(Where do they get on the trail?)
+
+(they're in the same diner as the one the Crew is going to, in order to avoid them. They'll actually pass one another as the agents leave (farce))
+
+"How'd you get assigned to The Unit?" asked Ezra Fournier.
+
+Bernard Glick woofed down a too-large bite of his eggs benedict. There was no way to chew it without exposing the contents of his mouth to half the restaurant. "I don't think we're there yet champ."
+
+"C'mon. You're gonna have to tell me the story sooner or later."
+
+Glick stared back blankly. Fournier couldn't look away from the churning, tragedy of masticated eggs and english muffin and hollandaise.
+
+"I'll tell you mine alright? How about that?"
+
+Glick loaded another forkful into his tireless, gaping, maw. Fournier was transfixed. He was imagining himself sucked into that blackhole of destruction, taken apart, stringified and then... "Could you, just, I don't know, maybe just close your mouth a little?" Glick complied. "Thanks."
+
+Fournier took up his coffee and sipped. His eyes glossed over and he rested his mug on top of his recently distended stomach, the unfortunate fate of so many middle aged men. "I'm a good agent, you know. You have to be to get where we are."
+
+"Sure sure," said Glick.
+
+"It's a damn shame that a lot of people don't take us seriously. Damn shame. We do good work. Mostly. Now, if I'm being honest, the thing that got me put on The Unit, is part of the reason people think we're a joke. You remember the Newfoundland Incident?"
+
+Glick chuckled then caught himself. "Yeah. Of course. Terrible, just...awful stuff."
+
+"Three bodies in total. You ever seen a body Glick?" Fournier's eyes were haunted. Glick shook his head. "Before that, me neither. Three bodies Glick. Three. Jack The Ripper stuff. I was out there, I was an ace, and I had a partner and we were supposed to stop this guy. I was confident I was going to get this bastard. Ultimately...I helped him get away." Glick agonized and pleaded with his face, trying to squelch the incipient grin he could feel coming. "I've never told anyone how it happened exactly. But since...well I'll tell you. This guy....he was a hell of an actor. A real Ryan Gosling this guy. Real chops."
+
+"Gosling? Ryan?"
+
+"Yeah."
+
+"Really? I -- Drive was alright I guess, but that seems like a reach to me. It's kinda -- "
+
+Fournier put his coffee on the table. "I'm sorry I didn't think -- it was the first -- I mean Gosling's good right? I mean -- Crazy Stupid Love?"
+
+"Oh that's right! He *was* in that. True. Ok, okay."
+
+"Yeah. Exactly, so back to my story. So we find that third body. Just poked to shit, full of holes, like a pin cushion. And it's just on the beach. My partner is thinking about quitting, you can understand a guy wanting to quit after seeing that stuff, which he did ultimately, and I'm well, I'm pretty sure there and then that my career is toast. And then this guy runs up. This dead girl's brother. Guy looks like a car just hit him when he sees the body. Totally demolished. Waterfalls of tears. Floods."
+
+"A *deluge.*"
+
+"Exactly. And so, he says how their mom is still at work and he needs to go grab her. And he's patting his body looking for his keys, totally out of sorts. This guy is breaking my heart Glick. I offer my keys. It was a rental. It's not like I gave him the keys to the cruiser or anything. Still, that guy was gone after that. And we were stranded, and by the time we put it all together, my career was *definitely* over. I had no choice but to jump on The Unit. That or not have a job. I guess I might've written something, but, I don't know. Everyone says that."
+
+"That's...crazy."
+
+"I know. So, you ready? What's your pitiful tale Bernie?"
+
+"Eh, not that. Not Bernie. Just Glick."
+
+"Okay then."
+
+### Now and Forever
+
+"Hello?"
+
+"Again with this? The Diner. Now."
+
+(I don't what Idris says in the diner)
+
+
+
+### Paradise in the snow
+Oslo Diggins is the kind of man who sits in his hottub, at the zenith of his latest ski resort in Walhalla, North Dakota, and stares down at all of it for hours on end. When he's done he puts on silk boxers and pajamas and a robe, all of it silk, even the ascot. And then he'll smoke in a study devoid of everything but a rocking chair and the snarling, taxidermied head of a wolf. It's one he killed himself. He didn't hunt it or anything. He ran it over during one of those all-too-common whiteout situations that they have in North Dakota. It was a runt and sick on top of that. The pelt still had tire tracks in it. Truth be told, Oslo couldn't bare to look at the thing. It was part of an ever failing attempt to accept responsibility for the death he caused out in the world. And there had been a lot of it.
+
+Oslo Diggins was barely keeping hold on a mind that seemed hell bent on getting lost ever since about two years prior. Because two years ago, Oslo Diggins killed Gates Diggins. His father. A millionaire, philanthropist, former Alpine Skiing Olympian. Pushed him right off the ski lift. There were messy details like just how he managed to get the safety bar up and how then, he managed to throw the notoriously hardy old man from the lift when he himself was such a disappointment physically, but those are lost to time. Oslo had blacked it all out. Shook the hell out of the etch-a-sketch that was his troubled mind. He hardly remembers that day. And nobody else knows about it. Of course they know that Gates Diggins is dead and all that. But not *who* killed him. By that point, everyone had seemed to stop caring. Business was booming.
