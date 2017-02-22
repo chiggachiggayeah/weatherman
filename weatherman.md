@@ -511,6 +511,7 @@ Naram was confused at first. Then, with bloodflow increasing, and sensation retu
 
 (this ends with them meeting Idris in the fog and her giving them the dossier as well as sending them Oslo Diggins)
 
+
 ### Touchy Subject
 
 (You're introduced to the agents and they talk about what they both think about Winston)
@@ -573,9 +574,78 @@ Fournier put his coffee on the table. "I'm sorry I didn't think -- it was the fi
 
 (I don't what Idris says in the diner)
 
+(the machine is all cutting edge laser technology and massive and relies heavily on some not still manufactured ultra-corporate sounding chemical (Dyn-o-gel))
 
+(meg-o-gel)
+
+On their way in Jin, DQ, and Naram walked by a couple of gentleman, a behemoth and very average-sized man of about forty, walking out. "Thanks," the three said, as the larger of the two men held the door open. You don't see that sort of thing all the time these days.
+
+Idris Klein was a hard woman to miss. She was a boisterous woman, exuberant in every atom of her being, and somehow possessed the quality of being deafeningly, unignorably loud without saying a single word. That diner was popular, packed from sun up to sun down. Still, they saw Idris in her booth instantly.
+
+Jin, DQ, and Naram sat down. Idris didn't look at them. Instead she began constructing a fort with the menus in the rack on top of the table, leaving spaces for each of their heads, but leaving no seams for inspection from the outside. Idris stuck her head in and the three followed suit.
+
+"You have the device?" she asked.
+
+"Isn't this a little over the top? Aren't we attracting more attention than anything?" probed Naram.
+
+"Yes or no."
+
+"Yes." said DQ. "No thanks to either of these two."
+
+"Great. Shut up. Here, take this." Idris' eyes wandered to the top of the menu fort as she began concentrating deeply. A few seconds later, Naram felt something hit his foot. He picked it up, which was difficult because he was hunched over and keeping his head in the confines of the fort of menus. Ultimately he found a biblical mass of paper and duct tape and staple and twine; that phrase -- Project Witchdoctor -- was again scribbled over the cover. "Got it?"
+
+"Yeah...what is this?" asked Naram.
+
+"Your inheritance."
+
+"What?" the three asked simultaneously. Naram flipped through the pages cautiously, since it was collapsing and crumbling like a medieval manuscript of haggard velum. About a third of the pages were singed at the corners or nearly charred all the way through, beyond the point of decipherability. Every now and again he'd flit passed an image of lab-coated scientists with horn-rimmed glasses, either deliberating or transfixedly observing something that had been burned off.
+
+"It's all in there. But for the past few years you've been helping build what's in the box. The history of which is all detailed in that book."
+
+"Wait. I'm confused. *What's* in the box?" asked DQ.
+
+"It's *in* the book. I just said that. Now, just take it and lay low. I'm going to get back to you in a couple of days. There's some people that should be able to help. I really appreciate the help. To be honest, I've already approved your theses. I'm not going to rescind. But do *this*. I'll write any recommendations you need. Anything."
+
+Jin plunged her head deeper into the fort. "What the hell is going on? Naram and I can't just around. I've got plans. Interviews. And Naram...well he's got to get back home. Sell air conditioners."
+
+"*Ahem*" A waitress, Beatrice, was standing at the booth. "Are y'all gonna order anything or...?"
+
+"Toast. Coffee." said Idris.
+
+"We really haven't looked at the menus," explained Jin.
+
+"Too much playing around? Too much fun with the menus, which *I'm* gonna have to clean up? I have to disinfect each one a patron touches you know. I'll be back in five."
+
+The four of them sat in silence until the waitress came back. Jin ordered orange juice and eggs. Just the whites, which made Naram roll his eyes. DQ ordered the Lumber Jack breakfast, and Naram was deciding between that and something called The Stack, but eventually he stammered his way into ordering the same thing as DQ. He said he didn't want to be difficult.
 
 ### Paradise in the snow
-Oslo Diggins is the kind of man who sits in his hottub, at the zenith of his latest ski resort in Walhalla, North Dakota, and stares down at all of it for hours on end. When he's done he puts on silk boxers and pajamas and a robe, all of it silk, even the ascot. And then he'll smoke in a study devoid of everything but a rocking chair and the snarling, taxidermied head of a wolf. It's one he killed himself. He didn't hunt it or anything. He ran it over during one of those all-too-common whiteout situations that they have in North Dakota. It was a runt and sick on top of that. The pelt still had tire tracks in it. Truth be told, Oslo couldn't bare to look at the thing. It was part of an ever failing attempt to accept responsibility for the death he caused out in the world. And there had been a lot of it.
+Oslo Diggins was the kind of man who sits in his hottub, at the zenith of his latest ski resort in Walhalla, North Dakota, and stares down at all of it for hours on end. When he's done he puts on silk boxers and pajamas and a robe, all of it silk, even the ascot. And then he'll smoke in a study devoid of everything but a rocking chair and the snarling, taxidermied head of a wolf. It's one he killed himself. He didn't hunt it or anything. He ran it over during one of those all-too-common whiteout situations that they have in North Dakota. It was a runt and sick on top of that. The pelt still had tire tracks in it. Truth be told, Oslo couldn't bare to look at the thing. It was part of an ever failing attempt to accept responsibility for the death he caused out in the world. And there had been a lot of it.
 
 Oslo Diggins was barely keeping hold on a mind that seemed hell bent on getting lost ever since about two years prior. Because two years ago, Oslo Diggins killed Gates Diggins. His father. A millionaire, philanthropist, former Alpine Skiing Olympian. Pushed him right off the ski lift. There were messy details like just how he managed to get the safety bar up and how then, he managed to throw the notoriously hardy old man from the lift when he himself was such a disappointment physically, but those are lost to time. Oslo had blacked it all out. Shook the hell out of the etch-a-sketch that was his troubled mind. He hardly remembers that day. And nobody else knows about it. Of course they know that Gates Diggins is dead and all that. But not *who* killed him. By that point, everyone had seemed to stop caring. Business was booming.
+
+### The End
+
+### The End, really
+
+# Appendix
+
+(there's something they need to figure out, although I was anticipating that it was the sm's who burned down the lab. What's missing? What could they be searching for?)
+(idris makes a cursory reference to the supranational meteorologists. The weathermen since she's got a plan to reach out to Gates Diggins. A plan which ultimately gets her killed.)
+(something about the essentialness of the now incredibly rare and nigh-defunct meg-o-gel) <- maybe there isn't any and they need to find some
+
+(why now for the canadians? Who / what shot the starting gun?)
+(some guy try's to sell some meg-o-gel on Craigslist -> this is the starting gun)
+(why does Idris then get all flighty? does she get a call from some canadians or something? I like the thought of her getting scared largely due to a misunderstanding)
+(maybe the Canadians have been following up with anyone to get some kind of gauge of the situation. Maybe Glick and Fournier haven't been fully apprised of the situation)
+
+(Oslo Diggins relies on the volatile substance meg-o-gel for his own efforts with the weather modification machines he uses at his father's resorts.)
+
+(Using the machine, loading it up wit)
+
+(Ultimately Oslo starts hunting the kids because they've stolen some of the mego-o-gel)
+
+(they receive a call from Idris phone from the people that killed her, so does Fournier)
+
+(the gang, after they run the machine, they find themselves in the predicament of needing to save themselves, without really being able to appeal to outside authorities because the nature of what the device)
+
+(Oslo and his father had a lot of disagreements over the use of meg-o-gel)
