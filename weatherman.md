@@ -598,9 +598,9 @@ Jin, DQ, and Naram sat down. Idris didn't look at them. Instead she began constr
 
 "Your inheritance."
 
-"What?" the three asked simultaneously. Naram flipped through the pages cautiously, since it was collapsing and crumbling like a medieval manuscript of haggard velum. About a third of the pages were singed at the corners or nearly charred all the way through, beyond the point of decipherability. Every now and again he'd flit passed an image of lab-coated scientists with horn-rimmed glasses, either deliberating or transfixedly observing something that had been burned off.
+"What?" the three asked simultaneously. Naram flipped through the pages cautiously, since it was collapsing and crumbling like a medieval manuscript on haggard velum. About a third of the pages were singed at the corners or nearly charred all the way through, beyond the point of decipherability. Every now and again he'd flit passed an image of lab-coated scientists with horn-rimmed glasses, either deliberating or transfixedly observing something that had been burned off. In a few the image was overexposed and overwhelmed by some eyeball-shriveling light source, and the scientists looked on through obsidian goggles.
 
-"It's all in there. But for the past few years you've been helping build what's in the box. The history of which is all detailed in that book."
+"It's all in there" said Idris. "But for the past few years you've been helping build what's in the box. The history of which is all detailed in that book."
 
 "Wait. I'm confused. *What's* in the box?" asked DQ.
 
@@ -619,13 +619,115 @@ Jin plunged her head deeper into the fort. "What the hell is going on? Naram and
 The four of them sat in silence until the waitress came back. Jin ordered orange juice and eggs. Just the whites, which made Naram roll his eyes. DQ ordered the Lumber Jack breakfast, and Naram was deciding between that and something called The Stack, but eventually he stammered his way into ordering the same thing as DQ. He said he didn't want to be difficult.
 
 ### Paradise in the snow
-Oslo Diggins was the kind of man who sits in his hottub, at the zenith of his latest ski resort in Walhalla, North Dakota, and stares down at all of it for hours on end. When he's done he puts on silk boxers and pajamas and a robe, all of it silk, even the ascot. And then he'll smoke in a study devoid of everything but a rocking chair and the snarling, taxidermied head of a wolf. It's one he killed himself. He didn't hunt it or anything. He ran it over during one of those all-too-common whiteout situations that they have in North Dakota. It was a runt and sick on top of that. The pelt still had tire tracks in it. Truth be told, Oslo couldn't bare to look at the thing. It was part of an ever failing attempt to accept responsibility for the death he caused out in the world. And there had been a lot of it.
+Oslo Diggins was the kind of man who sits in his hottub, at the zenith of his latest ski resort in Walhalla, North Dakota, and stares down at all of it for hours on end. When he's done he puts on silk boxers and pajamas and a robe, all of it silk, even the ascot. And then he'll smoke in a study devoid of everything but a rocking chair and the snarling, taxidermied head of a wolf. It's one he killed himself. He didn't hunt it or anything. He ran it over during one of those all-too-common whiteout situations that they have in North Dakota. It was a runt and sick on top of that. The pelt still had tire tracks in it. Truth be told, Oslo couldn't bear to look at the thing. It was part of an ever failing attempt to accept responsibility for the death he caused out in the world. And there had been a lot of it.
 
-Oslo Diggins was barely keeping hold on a mind that seemed hell bent on getting lost ever since about two years prior. Because two years ago, Oslo Diggins killed Gates Diggins. His father. A millionaire, philanthropist, former Alpine Skiing Olympian. Pushed him right off the ski lift. There were messy details like just how he managed to get the safety bar up and how then, he managed to throw the notoriously hardy old man from the lift when he himself was such a disappointment physically, but those are lost to time. Oslo had blacked it all out. Shook the hell out of the etch-a-sketch that was his troubled mind. He hardly remembers that day. And nobody else knows about it. Of course they know that Gates Diggins is dead and all that. But not *who* killed him. By that point, everyone had seemed to stop caring. Business was booming.
+Oslo Diggins was barely keeping hold on a mind that seemed hell bent on getting lost ever since about two years prior. Because two years ago, Oslo Diggins killed Gates Diggins. His father. A millionaire, philanthropist, former Alpine Skiing Olympian, and a pretty good father at the end of the day if Oslo was forced to deal with the psychical pain and think about it. Pushed him right off the ski lift. There were messy details like just how he managed to get the safety bar up and how then, he managed to throw the notoriously hardy old man from the lift when he himself was such a disappointment physically, but those are lost to time. Oslo had blacked it all out. Shook the hell out of the etch-a-sketch that was his troubled mind. He hardly remembers that day. And nobody else knows about it. Of course they know that Gates Diggins is dead and all that. But not *who* killed him. By that point, everyone had seemed to stop caring. Business was booming.
+
+Someone else came into the room. Doug. A henchman in Oslo's mind. Doug preferred to think of himself as a business partner. "Sir, someone put a batch up for sale on the internet. Some rando. Looks legit though."
+
+"You have the number?" asked Oslo.
+
+"Yes sir."
+
+"Phone." Doug walked to the corner of the room and picked up the phone. It was old, with faded brass, and a dial instead of a number pad. Oslo bought it because he felt it was the kind of phone Rockefeller would have used. This was not at all true. John D Rockefeller was a personal hero of Oslo's.
+
+Oslo dialed the number after a few false starts. There was no answer.
+
+### The Incredible Internet
+
+"Just like that, huh?" said Craig Jones. His son, Tony, was behind him, inspecting the web form his father had just filled out on the computer, a lumbering, paleolithic thing on dial-up.
+
+"Yep. Looks right to me," said Tony, and then he clicked the submission button. Seconds later, Craig Jones was a seller on Craigslist. Obviously, he was not the eponymous Craig.
+
+"Well I'll be dipped. That's mindblowing, right there. Truly."
+
+"Sure," said Tony, who had already moved on from the wonders of Craigslist, and was busy checking if anyone had liked his latest tweet on his phone. Tony scuffled away while his father continued to marvel. It *was* amazing, when you stopped to think about it. Just that morning Craig began an excavation of The Shed In Back that he had been avoiding for years. Until yesterday when his wife, Lucretia, went to trim her rosebushes in the front yard and couldn't find her sheers. Yet another gardening utensil swallowed up by The Shed. Lucretia, as of yesterday, had finally seen enough home-maintenance-miscellany bloodshed at the hands of the The Shed in Back. Craig had to clean the shed, and would be sleeping on the couch until it was done.
+
+Craig had never cleaned out the shed because there were ghosts there, phantasms especially reserved for Craig himself. You see, Lucretia and Craig and Tony lived in the house Craig had lived in his entire life and inherited from his parents. The Shed had been his father's private workplace and had always been strictly off limits to young Craig Jones. Craig Jones' father had been a scientist, a Canadian, and involved in some very odd kinds of science, naturally. Mysterious lances of light would emanate from the shed at the weirdest hours of the night, not to mention the noises that'd slip through the padlocked crease in The Shed's doors. The entire neighborhood was spooked, and nobody really associated with Craig Jones' father or the Jones family in general. That was difficult for young Craig Jones. In many ways, Craig Jones had never forgiven his father. So The Shed In Back was basically the locus of Craig's perfectly understandable daddy issues, unresolved anger and the kinds of monstrous childhood fears that people bury and take to their grave. Craig Jones had never set foot in The Shed until that morning.
+
+It was a mess. There were dusted and cracked vacuum tubes and chipped beakers leaking faintly phosphorescent ooze. There was even a skeleton. A dog. Craig Jones leaned over to inspect it, reading the tag hanging from his collar, and in doing so solved the case of what had happened to  his dog Rocket, whom his father said ran away. It was possible that Rocket had been a casuality in the unstoppable march of science, but it was also just as possible that Rocket had wandered out to the shed with Craig Jones' father and his father had just forgotten about the dog entirely until Rocket was nothing but a pile of bones. Craig Jones' father was notoriously forgetful. There was also a dusty case containing about fifteen tubes of something called Meg-o-gel.
+
+"Well what do I do with it?" Craig Jones asked his wife and son. The kitchen table was covered with all of the dusty curiosities from The Shed.
+
+"Toss it," said Lucretia, who was just happy to have her gardening sheers back. The rosebushes had gotten all out of sorts since they'd been lost.
+
+*Toss it* was a less than optimal solution for Craig Jones. Residue of his painful childhood or no, it didn't seem right to Craig Jones to just throw it all away.
+
+"You could sell it," said Tony.
+
+"No," said Lucretia. "We're not having a yard sale. The house is in disarray. If people see things like this they'll think we're slobs and Philistines."
+
+"No one would come," said Craig.
+
+"Not in *real* life. Jeez you two are really just -- on the internet," said Tony. To that point Craig Jones relationship with the internet was something like fire to neolithic man, for him it was indistinguishable from magic. Craig Jones couldn't trust something he didn't understand.
+
+As Craig Jones viewed his items for sale online, he still didn't understand it, but -- and maybe this was just undue confidence from having expunged a lot of daddy-related messiness in the form of The Shed -- he was ready to embrace whatever came next. Two days later he received a phone call.
+
+"Hello, um, is this Mr. Jones?"
+
+"Yes, who is this?"
+
+"Hiya, well, I saw that you're selling some Meg-o-gel on your site, and I'd like to buy. Name's Fournier by the way,  Ezra Fournier."
+
+"Oh wow. This is wonderful. Did you, uh, were you just gonna stop by then?"
+
+"Yeah. Sure. I can be there tomorrow. This is atypical, me being a collector and all, but from the pictures I can tell that this is a particularly good batch, and I was wondering if I could make an agreement to buy them in advance."
+
+"Well I suppose that's alright," said Craig Jones. He could hardly believe this was all happening. He was giddy, smiling spasmodically. His palms were sweating and he had at least three close calls with dropping the phone. "I don't have any experience with the stuff. How much were you thinking Mr. Fournier?"
+
+"How much do you want?"
+
+Craig Jones actually *did* drop the phone this time, and it clanked to the ground, and as he scrambled to pick it up he accidentally kicked it which sent it skidding all the way to the opposite end of the kitchen, underneath a cabinet full of China. He contorted awkwardly on his trying to get the phone.
+
+"Hello?" came Fournier's diminished electronic voice from beneath the cabinet. "Hello? Mr. Jones?"
+
+Craig Jones contorted and twisted a bit more desperately. His spine and various joints were straining themselves in ways he'd never asked them to. He strained a bit more, too much actually, and he pulled or twisted or dislodged something in his back. He had retrieved the phone though. "Hello?" said Craig into the gunk-covered receiver, voice hoarse with agony.
+
+"Oh! Hello Mr. Jones. Thought I lost ya!" The two laughed cordially, Craig Jones in short bursts, as every unnecessary breath sent him to the verge of tears. "Are you alright Mr. Jones?"
+
+"Just great. One hundred dollars." He had to expedite things, since the mere act of conversation had become unbearable.
+
+"Great! Well, I'll see you tomorrow Mr. Jones."
+
+Craig slid the phone along the kitchen floor, and then he lied down on his back, motionless, taking in only the shallowest breaths possible. He was that on his back in the kitchen all day until it got dark. His wife found him like that when she finally returned home from her annual Night Out With The Girls. In all that time, the phone rang only once. It was an unknown number from North Dakota.
+
+### Cacoethes
+(eventually the box just has to be opened)
+(what's the best way to reveal parts of this backstory, especially as its being unearthed in this manuscript? without seeming too expository, just a rush of facts)
+(also lay the groundwork for this group wanting to find out more of the mystery, firstly, figuring out exactly what happens when they run the machine with the meg-o-gel -> which glows faintly)
+
+The gang, instead of jumping hand in had off a cliff from sheer boredom was watching television. Naram remembered the couple of days before that purely in terms of a steady stream of bungled attempts to become a millionaire, court cases where defendants sought remuneration for the stress of having to appear on court television, and crime procedurals where everyone was far too good-looking to be involved in their purported line of work. A horror movie was on. Naram wasn't interested.
+
+(Who could be interested in something where every character seems fascinated with doing things that'll obviously only immanitize their own typically gory demise. Why the inexplicable fascination with staring the horrifying unknown in its toothy face?
+
+"I've gotta open it," said DQ. (the joke here being what's going on in Naram's head and how that relates to what DQ is saying here.)
 
 ### The End
 
-### The End, really
+
+
+### The End, really (this is more of a prologue)
+(DQ needs to be somewhere in the epilogue)
+Naram sat in his chair on the cafe patio under the awning. He was drinking tea. It was raining. The street was dead except for one bubble of ecstatic life, a group of five kids, kicking a ball through the pooling puddles. Naram heard shuffling footsteps behind him.
+
+"You're late." Naram turned around. His father shuffled towards him on his cane, Fatma guiding him from behind.
+
+"I don't work for you, what do you care?" said Naram, smiling.
+
+Fatma helped Fuwaz into a seat, across from Naram. Fatma sat down next to him. "I know. But I'm old. I keep a tight schedule." Fuwaz looked out at the kids playing. "You know, I've been thinking. Talking with your mother. It almost rains *too* much now. Don't you think?" Fatma slapped his hand, scolding him. "What? You *did* say that."
+
+Footsteps echoed at the front of the cafe, accompanied by luggage clicking along the tiles.
+
+"Hey mom. Dad. You ready Naram?" Jin leaned down, kissed Naram, and then hugged Fatma and Fuwaz.
+
+"I just got here actually, hon. Hadn't really gotten in my morning tea with mom and dad." Jin checked her watch.
+
+"Fine, fine. We'll reschedule." The gaggle of children had moved closer, and a kick gone awry sent he ball under the awning. Jin picked the ball up and walked it out from underneath the awning, tossed it back into play. She stared up at the sky through all the falling water, like she was looking for the spot where, somewhere above all the clouds, someone had turned over a cosmic bucket. Turning to Naram she said, "You think we overdid it with the ionizers? Too much mego?"
+
+"This is what we were saying!" exclaimed Fuwaz. Fatma hit him again.
+
+Naram laughed.
+
 
 # Appendix
 
