@@ -578,7 +578,7 @@ Fournier put his coffee on the table. "I'm sorry I didn't think -- it was the fi
 
 (meg-o-gel)
 
-On their way in Jin, DQ, and Naram walked by a couple of gentleman, a behemoth and very average-sized man of about forty, walking out. "Thanks," the three said, as the larger of the two men held the door open. You don't see that sort of thing all the time these days.
+On their way in Jin, DQ, and Naram walked by a couple of gentleman, a behemoth and a very average-sized man of about forty, walking out. "Thanks," the three said, as the larger of the two men held the door open. You don't see that sort of thing all the time these days.
 
 Idris Klein was a hard woman to miss. She was a boisterous woman, exuberant in every atom of her being, and somehow possessed the quality of being deafeningly, unignorably loud without saying a single word. That diner was popular, packed from sun up to sun down. Still, they saw Idris in her booth instantly.
 
@@ -689,24 +689,207 @@ Craig Jones contorted and twisted a bit more desperately. His spine and various 
 
 "Great! Well, I'll see you tomorrow Mr. Jones."
 
-Craig slid the phone along the kitchen floor, and then he lied down on his back, motionless, taking in only the shallowest breaths possible. He was that on his back in the kitchen all day until it got dark. His wife found him like that when she finally returned home from her annual Night Out With The Girls. In all that time, the phone rang only once. It was an unknown number from North Dakota.
+Craig slid the phone along the kitchen floor, and then he lied down on his back, motionless, taking in only the shallowest breaths possible. He was like that on his back in the kitchen all day until it got dark. His wife found him like that when she finally returned home from her annual Night Out With The Girls. In all that time, the phone rang only once. It was an unknown number from North Dakota.
 
 ### Cacoethes
 (eventually the box just has to be opened)
 (what's the best way to reveal parts of this backstory, especially as its being unearthed in this manuscript? without seeming too expository, just a rush of facts)
 (also lay the groundwork for this group wanting to find out more of the mystery, firstly, figuring out exactly what happens when they run the machine with the meg-o-gel -> which glows faintly)
 
-The gang, instead of jumping hand in had off a cliff from sheer boredom was watching television. Naram remembered the couple of days before that purely in terms of a steady stream of bungled attempts to become a millionaire, court cases where defendants sought remuneration for the stress of having to appear on court television, and crime procedurals where everyone was far too good-looking to be involved in their purported line of work. A horror movie was on. Naram wasn't interested.
+The gang, instead of jumping hand in hand off a cliff from sheer boredom, was watching television. Naram remembered the passed couple of days purely in terms of a steady stream of bungled attempts to become a millionaire, court cases in which defendants sought remuneration for the stress of having to appear on court television, and crime procedurals where everyone was far too good-looking to be involved in their purported line of work. A horror movie was on presently. Naram wasn't interested.
 
-(Who could be interested in something where every character seems fascinated with doing things that'll obviously only immanitize their own typically gory demise. Why the inexplicable fascination with staring the horrifying unknown in its toothy face?
+Besides someone had to read through the Project Witchdoctor manuscript. The bits of it that were legible and unburnt were...odd. Occasionally Naram would throw out the strangest parts to whoever would listen.
 
-"I've gotta open it," said DQ. (the joke here being what's going on in Naram's head and how that relates to what DQ is saying here.)
+"Project Witchdoctor was a Canadian effort begun by the current PM's father in the late eighties. Top secret stuff. They didn't tell anyone." Murmurs from the audience. He kept quiet until he came across a curious bit of language describing the purpose of the project. "The stated goal of Project Witchdoctor was to secure the meteorological hegemony of Canada, and thereby, to secure Canadian hegemony in general. That's like, a nice way of saying world domination right?"
+
+At least Jin's interest was visibly piqued. "Project Witchdoctor was a Canadian effort to take over the world via a weather control machine. That doesn't sound real."
+
+"It's here," said Naram. He read on. "The project actually was successful after years of missteps and failure. The turning point was this scientist that arrived on the project, and he invented some kind of...material" Naram flipped forward through the pages. "This is weird. His name is blacked out everywhere, or just replaced with, like, a bracketed 'redacted'." The next part made Naram's face go slack. "Apparently, while the substance was kind of the linchpin with the device, people also started losing their minds left and right. That is what 'irrepressible bouts of mania' means, right? I mean, maybe that's why this guy is just basically erased. He's like a pariah."
+
+"A black sheep," added DQ. She also bleated a couple times, to really drive the image home.
+
+"Thanks DQ," said Naram. "And then it says 'running the machine caused unusual behavioral changes in anyone in the vicinity. Generally short lived. Some portion of the effect seems to be occularly transmitted. Darkened polarized lenses seem to reduce the severity and occurance of adverse side effects in all test groups.' What the hell, right?" And then the last paragraph. "Project Witchdoctor ended prematurely when the lab burned down under suspicious circumstances. None of the experiments or technology were recovered in the residue of the fire."
+
+Jin and DQ had turned back to the television, as ominous, minor notes and tritones poured out of the orchestration. "I could have been in Paris right now, living my life, not dealing with this weird ass shit," said Jin. On screen, the film's heroine felt it a good idea to descend into the pitch black, and clearly dangerous pit of this house in which three people had already met their gory end, and a malevolent murderer's spirit was frolicking around and generally having a murderous field day.
+
+Why the inexplicable fascination with staring the horrifying unknown in its toothy face?
+
+She descends eventually, but not alone. She's accompanied by her childhood friend, an ebullient amalgam of black female stereotypes, although, hilariously, she seemed to have no knowledge of the trope that made it practically a sure thing that if anyone was ascending from the basement alive, it wouldn't be her. "She made it through three quarters of the movie," said DQ, "not bad". Lo and behold, Monique did not make it. From then on, DQ was twitchy, constantly shifting in place on the couch, bleating intermittently though she had forgotten entirely why she'd done that in the first place.  "I've gotta open it," she said the moment the danger was over, barring some pre-credits or post-credits, ultra-cheesy jump scare designed to set up a money-grabbing sequel.
+
+"Inadvisable," said Naram, but it was too late. DQ already had on her shoes and coat and then she was out the door. Jin turned to Naram.
+
+"It was bound to happen." She and Naram followed reluctantly.
+
+The three huddled in the back of the van around the massive box. They hefted it outside. DQ, out of nowhere, produced a knife and began to make an incision down the side. Her place was to sort of c-section whatever was inside, and then worry about dealing with closing the gash later. In simple terms, the device -- exposed amid a ribboned mass of cardboard -- it looked like a disco ball strapped atop the chamber of a colossal, Wild-West era revolver. The two other notable features were a kind of hacked-on canister, metastasized out of the side of the colossal chamber, and a screaming big red button. DQ hammered the button, before the other two could intervene.
+
+"What the hell!" shouted Naram, as he and Jin seized DQ by the elbows and pried her away from the device. "What the shit! What if you'd just blown us up? We have no idea what could happen."
+
+"She's all id, no ego." said Jin. DQ wrenched herself away from Jin and Naram.
+
+"Thanks for the psychoanalysis, *Freud*," she said to Jin, sticking out her tongue. DQ walked closer to the machine and checked the canister. "It's empty." She inspected it a little more closely. "Was there anything in that book about," she paused to read the fine and rusting print, "about something called Meg-o-gel?"
+
+### The Death of Craig Jones
+
+He still had a limp. It only happened about every fifteen steps. And it was slight. That said it was nothing like if you'd sprained your ankle. Craig Jones would stop completely in the throes of an overwhelming flash of back pain. His eyes would bulge and his face would jitter in panic when he felt it coming. So he walked around nervous and jumpy, skeptical of any errant movement that could spell his undoing. The effect on onlookers was kind of like watching an easily spooked, aged buck who suspects he is in the process of being hunted, but cannot see from where.
+
+Craig Jones was walking to fetch the case. He was not alone. A man in a sweater vest had appeared on his curb that morning. Craig didn't actually see him appear. Something in his paranoid core had him thinking that man hadn't appeared that morning so much as he had been out there for a quite a while and maybe even since the night before. The man wanted to know about the meg-o-gel. Maybe it was just Craig's aching back, but he was starting to regret ever putting the meg-o-gel on sale, and more broadly, the development of the internet itself. Craig Jones was the type of man who had an inordinate amount of faith in his gut, and he regretted not trusting it now, in regards to bad vibes the very concept of the internet gave him.
+
+"Sir, I'm sorry, I appreciate you helping me lug this case out of The Shed on account of my back, but like I said, it's already been bought. Now, if you're willing to wait for Mr. Fournier to get here so you can try and hash something out, that's more than fine with me, but I can't give you anything." They'd arrived at the shed, and Craig unlocked the doors and threw them apart, which was a mistake. He hunched over, suddenly unable to breath.
+
+"Are you okay mister?" said the sweater-vested man, placing an over-developed hand gently on his back. This man and his sweater vest and his conspicuously ridiculous mustache set off the gastronomic-red-flag equivalent of a vivid pyrotechnic display pleading "DO NOT TRUST THIS MAN". Nobody that muscle-bound had ever warn a sweater vest except ironically. And this man did not have a sense of humor. Again, Craig could just tell. And yet, misgivings and dark premonitions aside, Craig entered The Shed and invited Sweater Vest to come in after him, to help with the case.
+
+At the sight of the case Craig swore Sweater Vest's eyes got blacker, like the adrenaline rush from seeing it dilated the pupils so much that they swallowed up the entirety of his eyeballs. Light didn't fully pentrate the depths of The Shed, so Sweater Vest took out his phone and turned its flashlight on the case. The faded Meg-o-gel logo glinted under the light. "So are you gonna help me or what?" said Craig. The case wasn't lifting itself. In response Sweater Vest edged backwards to the front of the shed, gripped the double doors in his hands, and shut them. Craig could hear the man's breath in the mold-scented darkness. His stomach didn't even throw another red flag -- it just dropped, in Craig's clairvoyant gut's way of saying "told you so."
+
+Luckily for Craig, Sweater Vest was a real pro. It was over quickly.
+
+### Not again
+
+(in which glick and fournier arrive on the scene just as Doug is making his getaway. Doug says that Craig had a change of heart and the duo can take it up with Craig if there's an issue, and as they're walking back doug makes a break for it, inadvertantly bumping into The Trio at the end of which Fournier actually says the chapter title)
+
+"To be clear, when we get there, what do we do?" Fournier was quizzing Glick, who was driving.
+
+"Easy. Give him the money."
+
+"Making sure not to...?"
+
+"Making sure not to tell him that we work for the government or anything like that."
+
+Fournier frowned. "We really don't even want him to know we're Canadian."
+
+"Sure. Of course. Great."
+
+"So show me your accent."
+
+"What're you -- what accent?"
+
+"Any accent. Doesn't matter. American, British, German, Austrian, Australian. French. Well no not French. Could still be Canadian" said Glick.
+
+"I don't *sound* Canadian." retorted Glick.
+
+"You most certainly do. You don't hear yourself? That Northern drawl?"
+
+Glick actually took his eyes off the road, something he was pretty strict with respect to not doing. "Northern drawl?"
+
+"It's a thing trust me. My personal advice to you is don't think about it too much, but maybe affect something like a Boston accent. Even if it's awful it won't be Canadian."
+
+Glick might've said something, but they'd arrived. And a man was hurriedly, scampering to his car on the curb, case in hand. Their case.
+
+Fournier flew out of the car. "Hey, hey, what's -- uh -- what's this?"
+
+The man stopped, adjusted his mustache, the left end of which had slid down to his bottom lip. "Wh -- nothing. There's...I'm sorry, who're you?" said the man.
+
+"We're the people who bought that case you're trying to make off with," said Glick, who'd come around to the other side of the car. About halfway through the sentence he remembered the thing about the Boston accent, so the first part sounded perfectly intelligible and the last part...less so.
+
+"I see. Where are you guys from, if you don't mind my asking?" said the would-be thief.
+
+"We do mind you asking," Fournier butted in. "Where's Mr. Jones?"
+
+The sweater vest guy gulped visibly. Fournier assumed that maybe it was the heat. It was far too warm for a sweater vest. "In back. I'm sorry if there was some prior agreement you made with Mr. Jones but he had a...change of heart." Fournier noted the pause as definitely a little bit suspicious. "But he's in back. We can figure out something. We're all adults." The sweater vest guy indicated the back of the house with a free hand, never letting go of the case. Fournier tried to give a signal to Glick with his eyes, but ended up just fixing Glick with a bulbous, and bulging-eyed glare, which confused Glick.
+
+As they neared The Shed, the party slowed down, Glick and Fournier assessed the situation. They were both getting what can only be understood as pretty unignorably bad vibes from The Shed. The whole idea that human beings have five senses is absolute, total, utter bullshit. There are probably at least a hundred and what Glick and Fournier felt then was that sinking, paleolithic sensation of foreboding. They both knew that they were not going to like whatever was in The Shed. "Hey," said Fournier to the man in the sweater vest, "what's going on?" The man was no longer following them. In fact, he was traveling in exactly the opposite direction, back up through the backyard and to the front of the house. He was doing so in a feverish sprint. "Shit," muttered Fournier.
+
+"Ezra we're gonna have to call this in." Glick was peering into The Shed, his coat pulled up over his mouth and nose.
+
+"Not again," Fournier sighed.
+
+
+(ends with Glick saying, Not again)
+### Not again, reprise
+
+"Not again," said Oslo Diggins, just emerged from his daily jacuzzi soak at the resort summit. Doug had brought him the case of Meg-o-gel from the man on the East Coast, but there were several units missing. This was somewhat of a regular thing with Doug. He almost always succeeded but never without a caveat, like a brawl broke out, or there was a fire, or he had to kill someone. Inevitably whatever he returned with was less than whole.
+
+"Sorry. Things got hot."
+
+"Don't they always with you?" said Oslo. Oslo's clothes were laid out for him on the bed, so he began to change right there in full view of Doug. This also happened frequently, yet Doug was still not quite used to it. "Explain."
+
+"So, well, I get there and this guy has already made arrangements to sell the case to these other two guys. And what can I do? He's this poor old guy and he's falling apart. I snap his neck in the shed."
+
+Oslo cringed. "I don't need the details Doug."
+
+"Sorry. Anyway, I thought I was homefree. Thought from then on it was just a simple matter of loading the case and heading back here. But *they* show up. Literally, right as I'm about to throw the case in the car."
+
+"*They*?"
+
+"These two guys. Really weird accent on the one guy. Impossible to say where they were from. As you might expect they're not exactly on board with me taking off with the case, seeing as they've made prior arrangements with this guy who, unbeknownst to them, is now a corpse in the shed. So I start heading to the back, saying we're gonna work this whole thing out, and then when they're distracted, I book it for the car. But then *more* people show up."
+
+"You've got to be kidding me."
+
+"No, anyhow, I'm in a rush and as I'm looking the other way, I run into, full-force, straight into this guy, some Middle Eastern looking kid, and the gel goes everywhere. There are these two girls with him. And everyone's freaking out and I'm just tryna get outta Dodge, so I throw it all in the case -- or so I think -- and I peel outta there. Turns out, I left some."
+
+Oslo was fully dressed. He sat down on the bed, and pulled his hair back onto his head. "Well go back. It seems obvious to me that either those two guys have my gel or this Muslim kid does, which frankly I gotta tell ya, I find that prospect -- from a National Security perspective -- thoroughly terrifying."
+
+"Sir, how would I even -- "
+
+" -- don't know. Don't care really Doug. Just do it." And then, as was his ritual, Oslo Diggins sat in the lone rocking chair and peered out over all he'd created, through the massive glass window which occupied an entire wall of the room. The road-killed wolf snarled downward with him, though its gaze was somewhat cock-eyed, as there's really only so much even a top-tier taxidermist can do with something that's literally been hit by a truck.
+
+Doug left the room with his head down. He had no idea where he was going.
+
+"And also," called Oslo, "take off that sweater vest. What're you thinking?"
+
+### Rainmaking or Cacoethese II
+
+(when people run when they don't really need to, thereby exacerbated on cop television, sure maybe there's a warrant out for their arrest, but still he seems stupid)
+
+(between the way Sweater Vest pealed off and the way these two guys look kind of dangerous and have guns, and the fact that they have this smoking gun in the form of this weather machine...they peal off and ultimately, upon finding an ultra-secluded place, they run this bad boy.)
+
+Aged 25, largely lacking any cogent plan for the future, also lacking much optimism for where the spooky action of so-called destiny seemed to be taking him, Naram-Sin Nazari, stared down at the lawn whose address he'd found on the internet, and made a choice. The choice involved the tubules of mysterious goop called Meg-o-gel left on the lawn by a man who'd recently made a hasty getaway. The choice similarly involved two men who'd emerged from behind the house and shouted "freeze" with authoritative, albeit ineffective, voices. One of them, in this flash-frozen droplet of time, was reaching ominously into his blazer, where there'd be a gun if he was any kind of law enforcement personnel.
+
+It was unclear why things unfolded the way they did. Jin, with so much to lose, was as one stricken by a Gorgen's stare, muscles and sinew and bone, alchemized to stone. DQ had recognized for a long time, the advantages to playing The Game -- her words -- none too attached to the outcome. She too, like Jin, had cushy jobs lined up that made the ultra-ambitous, type-A segment tremble with envy. But she refused to let that dictate how she played the game. It must have been that, in the pristine, twenty-twenty, clarity brought by sheer terror -- Naram was able to realize that he *actually* had nothing to lose, but a lifetime failing to sell inferior air-conditioners and watching himself become his father. And so, when DQ looked at him for what to do, with the men-who-maybe-had-guns coming up and all that Meg-o-gel just sitting there, Naram chose to be indifferent to how this all turned out, since in the worst case he'd end up not having to go into the family business. In fact, in the worst case, he'd never have to do anything ever again.
+
+He and DQ scrambled to pick up the hastily misplaced tubes, and before they could find out if the two guys coming up from behind the house were cleared to use lethal force if necessary, DQ, Naram, and Jin were back in the van, and rumbling off down the street.
+
+They weren't being followed and he knew it. Yet, one little neurotic particle of doubt had burrowed into his head, and he saw his non-pursuers in every pedestrian and behind every tree and every cop car on traffic duty, he swore would flip on its lights and command them to pull over, guns drawn, when they drove by. None of that ever happened. Instead they drove and drove and didn't talk much. They came to a motel, surrounded by trees and shards of a town. Nobody spoke much. Not even DQ.
+
+Mostly. Eventually, as it does every day, two in the morning rolled around, and DQ could not sleep. DQ rocketed out of bed, looking only mildly deranged, and foraged through her small bag for something to wear outside.
+
+"DQ what're you doing?" asked Jin, more as a method to buy herself for what she sensed was going to happen imminently rather than as an earnest attempt to figure out what DQ was up to.
+
+"It's gotta happen," said DQ, pulling on a coat. She went to the door. "Now I'll ask you a question that's not entirely stupid. Are you coming Jin? And Naram, am I going to have to drag you out of bed or are you coming willingly?"
+
+Naram groaned and pulled his blankets off his head. "Yeah I'm coming."
+
+
+They set the machine up at the bottom of the hill, someplace they'd found after driving past miles and miles of generic forest. Jin and DQ fiddled with the machine, trying to correct insert one of the Meg-o-gel tubes into the mitotic canister. Naram handed each of them a pair of dark-lensed goggles that he'd found on the bottom of the box. On the sides they were emblazoned with a faded Canadian flag. It was difficult to see in the dark but there were smudges on the lenses, fingerprints, and in spots the plastic was gnarled and melted. With the tube empty, the three stood and glanced at one another in tacit agreement. DQ pushed the big red button.
+
+The machine lurched. And then again, and then it was wobbling violently back and forth like a paint mixer with a screw loose or -- more ominously -- like someone was trapped inside and they'd been jolted awake and now they were trying to get out. Unconsciously they each took a step back. Naram noticed a strange smell in the air. Not strange because he didn't recognize, but strange because he'd sworn they were completely alone. It was weed.
+
+"You smell that?" he asked.
+
+"Oh shit. Yeah." said Jin. "Where do you think it's coming from?" she asked.
+
+"Yeah, that'd be great to know but, I can't see shit out of these friggin' glasses," said DQ. She began to lift them off her face.
+
+"No!" Naram screamed, and he threw DQ's hands away from her face. "'Irrepressible bouts of mania'. Remember?"
+
+"What the fuck is going on down there?" called a voice from above. At the top of the hill, a murky shadow, washed in and out of visibility against the night sky. For Jin, Naram, and DQ it might as well have been the voice of God for all they could see.
+
+"Nothing. Go away. Please." asked Jin.
+
+More footsteps sounded against grass, crunching in the rapidly chilling air. "What?" said someone. "We should go check this out," said someone else.
+
+Naram would've told DQ to shut it down, or at least try to find some way to. He assumed it would've been useless. The machine, he guessed, was a device that adhered strictly to the Pringles Theory, much like dams or the rapacious, bloodthirsty, undead monsters in the movies they'd watched the passed couple days. That is to say, Naram feared once the device had been turned on it couldn't be turned off. All of that was beside the point anyway, because right at that moment the device shot rays of light into the sky in every, direction, and Naram began to hear music.
+
+Shielding himself from the light, Naram turned away and towards the hill. The music continued, grew louder. He noticed there were about twenty others on the hill. He noticed the air had thickened somehow, into a glittering blue tincture. The last thing he noticed was rather unbelievable and if he wasn't already hearing music from nowhere he would've dismissed it out of hand as a sudden and early neurodegenerative disease or hysteria, but there was no way of denying the angelic choir and dizzying, electronic guitar shredding across the sulci and gyri of his neocortex. They were dancing. One throng was dancing all in step in a graceful, pseudo-balletic mass like a school of fish. Mostly though, they were doing the euphoric, out-of-body-experience type less-than-dancing -- gyrating, really -- which is common amongst epileptics and fans of heavy metal.
+
+Naram couldn't tell if Jin was seeing the same thing. She must've been though, he figured. A couple of feet away she was staring at the hill and the lawn show it'd devolved into, mouth agape, totally rapt. A dull white down began to percolate on her sleeves. Naram looked up. Snow was seesawing to earth, sublimating pretty much instantly in the summery dirt. Naram looked for DQ and then noticed her on the hill, absorbed in the tippy-toed school of dancers. She'd taken off her goggles.
+
+Then the machine died. Whatever had been hankering for freedom inside it, went away. The hill went black. The air no longer glowed here and there and all trace of lavender and flowers out of it. The dancers on the hill collapsed in heaps. Jin and Naram loaded the machine back into the van. It was touch and go, as the machine had become molten and impossible to touch or be near for more than a few seconds. It was almost as difficult to drag DQ's dead weight into the van.
+
+As they were driving away, DQ came to. "Why're we leaving? What happened? Why am I in the van?" she asked.
+
+"We ran it. You were dancing."
+
+Her bewildered face jumped into an ecstatic smile. "So it worked?" Naram nodded. His phone rang.
+
+It was Idris. She breathed frantically into the phone. "SGMA" Then the line went dead.
+
+(Supranational Gaggle of Meteorological Adaptationists also a News Station in Cali)
+### The Worst Postal System on Earth
+
 
 ### The End
 
-
-
-### The End, really (this is more of a prologue)
+### The End, really (this is more of a prologue. hate this)
 (DQ needs to be somewhere in the epilogue)
 Naram sat in his chair on the cafe patio under the awning. He was drinking tea. It was raining. The street was dead except for one bubble of ecstatic life, a group of five kids, kicking a ball through the pooling puddles. Naram heard shuffling footsteps behind him.
 
