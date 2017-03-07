@@ -848,10 +848,11 @@ Mostly. Eventually, as it does every day, two in the morning rolled around, and 
 
 Naram groaned and pulled his blankets off his head. "Yeah I'm coming."
 
+---
 
 They set the machine up at the bottom of the hill, someplace they'd found after driving past miles and miles of generic forest. Jin and DQ fiddled with the machine, trying to correct insert one of the Meg-o-gel tubes into the mitotic canister. Naram handed each of them a pair of dark-lensed goggles that he'd found on the bottom of the box. On the sides they were emblazoned with a faded Canadian flag. It was difficult to see in the dark but there were smudges on the lenses, fingerprints, and in spots the plastic was gnarled and melted. With the tube empty, the three stood and glanced at one another in tacit agreement. DQ pushed the big red button.
 
-The machine lurched. And then again, and then it was wobbling violently back and forth like a paint mixer with a screw loose or -- more ominously -- like someone was trapped inside and they'd been jolted awake and now they were trying to get out. Unconsciously they each took a step back. Naram noticed a strange smell in the air. Not strange because he didn't recognize, but strange because he'd sworn they were completely alone. It was weed.
+The machine lurched. And then again, and then it was wobbling violently back and forth like a paint mixer with a screw loose or -- more ominously -- like someone was trapped inside and they'd been jolted awake and now they were trying to get out. They each took an unconscious step back. Naram noticed a strange smell in the air. Not strange because he didn't recognize it, but strange because he'd sworn they were completely alone. It was weed.
 
 "You smell that?" he asked.
 
@@ -859,7 +860,9 @@ The machine lurched. And then again, and then it was wobbling violently back and
 
 "Yeah, that'd be great to know but, I can't see shit out of these friggin' glasses," said DQ. She began to lift them off her face.
 
-"No!" Naram screamed, and he threw DQ's hands away from her face. "'Irrepressible bouts of mania'. Remember?"
+"No! Idiot!" Naram screamed, and he threw DQ's hands away from her face. "'Irrepressible bouts of mania'. Remember?"
+
+"No, but if you call me that again I'm going to irrepressibly kick your ass, so, remember that alright?"
 
 "What the fuck is going on down there?" called a voice from above. At the top of the hill, a murky shadow, washed in and out of visibility against the night sky. For Jin, Naram, and DQ it might as well have been the voice of God for all they could see.
 
@@ -869,27 +872,422 @@ More footsteps sounded against grass, crunching in the rapidly chilling air. "Wh
 
 Naram would've told DQ to shut it down, or at least try to find some way to. He assumed it would've been useless. The machine, he guessed, was a device that adhered strictly to the Pringles Theory, much like dams or the rapacious, bloodthirsty, undead monsters in the movies they'd watched the passed couple days. That is to say, Naram feared once the device had been turned on it couldn't be turned off. All of that was beside the point anyway, because right at that moment the device shot rays of light into the sky in every, direction, and Naram began to hear music.
 
-Shielding himself from the light, Naram turned away and towards the hill. The music continued, grew louder. He noticed there were about twenty others on the hill. He noticed the air had thickened somehow, into a glittering blue tincture. The last thing he noticed was rather unbelievable and if he wasn't already hearing music from nowhere he would've dismissed it out of hand as a sudden and early neurodegenerative disease or hysteria, but there was no way of denying the angelic choir and dizzying, electronic guitar shredding across the sulci and gyri of his neocortex. They were dancing. One throng was dancing all in step in a graceful, pseudo-balletic mass like a school of fish. Mostly though, they were doing the euphoric, out-of-body-experience type less-than-dancing -- gyrating, really -- which is common amongst epileptics and fans of heavy metal.
+Shielding himself from the light, Naram turned away and towards the hill. The music continued, grew louder. He noticed there were about twenty others on the hill. He noticed the air had thickened somehow, into a glittering blue tincture. The last thing he noticed was rather unbelievable and if he wasn't already hearing music from nowhere he would've dismissed it out of hand as a sudden and early neurodegenerative disease or hysteria, but there was no way of denying the angelic choir and dizzying, electronic guitar shredding across the sulci and gyri of his neocortex. They were dancing. One throng was dancing all in step in a graceful, pseudo-balletic mass like a school of fish. Mostly though, they were doing the euphoric, out-of-body-experience type less-than-dancing -- gyrating, really -- which is common(popular? might be funnier) amongst epileptics and fans of heavy metal.
 
 Naram couldn't tell if Jin was seeing the same thing. She must've been though, he figured. A couple of feet away she was staring at the hill and the lawn show it'd devolved into, mouth agape, totally rapt. A dull white down began to percolate on her sleeves. Naram looked up. Snow was seesawing to earth, sublimating pretty much instantly in the summery dirt. Naram looked for DQ and then noticed her on the hill, absorbed in the tippy-toed school of dancers. She'd taken off her goggles.
 
-Then the machine died. Whatever had been hankering for freedom inside it, went away. The hill went black. The air no longer glowed here and there and all trace of lavender and flowers out of it. The dancers on the hill collapsed in heaps. Jin and Naram loaded the machine back into the van. It was touch and go, as the machine had become molten and impossible to touch or be near for more than a few seconds. It was almost as difficult to drag DQ's dead weight into the van.
+Then the machine died. Whatever had been hankering for freedom inside it, went away. The hill went black. The air no longer glowed here and there and all trace of lavender and flowers had fallen out of it. The dancers on the hill collapsed in heaps. Jin and Naram loaded the machine back into the van. It was touch and go, as the machine had become molten and impossible to touch or be near for more than a few seconds. It was almost as difficult to drag DQ's dead weight into the van.
 
 As they were driving away, DQ came to. "Why're we leaving? What happened? Why am I in the van?" she asked.
 
-"We ran it. You were dancing."
+"We ran it. You were dancing." replied Naram.
+
+"Well?"
+
+"Oh yeah, quite. I was only impressed. You never took...ballet by any chance, right?"
 
 Her bewildered face jumped into an ecstatic smile. "So it worked?" Naram nodded. His phone rang.
 
-It was Idris. She breathed frantically into the phone. "SGMA" Then the line went dead.
+It was Idris. She breathed frantically into the phone. "4 Watercrest" Then the line went dead.
 
 (Supranational Gaggle of Meteorological Adaptationists also a News Station in Cali)
-### The Worst Postal System on Earth
 
+### TV Dinners
+
+"Ugh. All the houses look like they're made of plastic," commented DQ, as the monotony of suburbia tumbled by on the other side of the window.
+
+Jin was actually from near that part of Boston. "Sorry we can't all be from The Valley," said Jin, eyes rolling up and away from the road.
+
+"I know you are" said DQ.
+
+Naram could hardly remember his little apartment now. After so long, his dorm seemed more like home than that apartment where his room hadn't changed since almost a decade ago. This was entirely thanks to his mother. Fuwaz had long since wanted to change it into a kind of entertainment room, or at the very least rent it out. Fatma refused to change the room in an effort to preserve some shimmer of that boy who'd once inhabited it, and so it staid untouched, gathering dust and horrifyingly infinite, like a tiny creature caught in amber. What Naram *could* remember was nothing like what he saw swimming around him. "You *do* have to admit, it is kind of awful when you really look at it. Artificial." Jin didn't say anything.
+
+Four Watercrest was no more or less plasticky than anything that surrounded it. It was a middle-of-the-road brand of house, a house made for everyone and thus a house made for exactly no one at all. It was one story and angular. The angles were perfect. No decimals. The house was white. The most daring thing about the house was the three-paneled window that looked out from the living room onto the doorstep. It was the architect's one grasp at a semi-distinguishing feature, something he knew this kind of inhabitant wouldn't like, but they'd tolerate, as was their nature. The three of them stood on the doorstep and rung the bell.
+
+There was a man on the other side of that window. He was sitting on his couch watching the news, eating a tv dinner off a tray. The man was quite obviously wearing a toupee and you could tell because intermittently he scratched his head and his entire scalp appeared to move. Naram rung the bell again and this time the man noticed. He craned his neck backwards to see out the window. He jumped up when he saw the three of them, knocking over his tv dinner. "For Pete's sake!" he yelled, audible through the papery walls and the thin glass. He started to shovel the remnants back into the plastic, compartmentalized dish, then he remembered that he should go and answer the door. He stood reluctantly and brushed off his hands. Then the newscast transitioned into the meteorology portion of the affair. The man's hands shot up to his head as he scanned the room, and then found what he was looking for: pen and paper. He held up a finger to the almost-edgy window. "One second, just one second," he said. He put the paper down on the tv tray and began to write. The segment lasted three minutes.
+
+"Hello," he said once he answered the door. He didn't open it all the way. He just opened it wide enough to allow his face to be seen fully by anyone on the doorstep. "Who are you?"
+
+Naram raised an eyebrow. "Idris sent us. Idris Klein?"
+
+The man's face remained unchanged. "Yeah, I know Idris. But *who* are *you*?" They took turns.
+
+"Naram-Sin Nazari"
+
+"Diana Quinn"
+
+"Jin Chen"
+
+"Great," said the man, nodding. He closed the door. Through the window, the girls and Naram watched as the man dug through a pile of papers on cabinet next to the tv. Then finally he pulled one out and whatever he found on it seemed to be satisfactory, as he nodded at it for a good thirty seconds. He returned to the door opened it. "Just to double check. You're Naram-Sin Nazari?"
+
+"Yeah," confirmed Naram.
+
+"You're Diana Quinn?" DQ confirmed with a thumbs up. "And you're Jin? Jin Chen?"
+
+"Oh my god. YES." said Jin.
+
+The exhaled and smiled. "Good...good. Well, come in, come in!" he said, opening the door wide. The three stepped inside and briefly looked around.
+
+"It's actually worse inside," whispered Naram to DQ.
+
+Jin leaned close to his ear. "Now's not a great time to be an asshole."
+
+They sat down on the small sofa, laid out perpendicularly to couch where the man was sitting, against the wall. The room reeked of stale potatoes and burnt gravy.
+
+The man went right to cleaning up the dinner, before the molten gravy could seep any further into the fibers of the carpeting. "So the name's Will. Wilson actually, but just call me Will. Idris didn't really give me any specifics. She just said you'd be dropping something off. Then I'd get directions."
+
+"You really don't know what it is?" DQ asked.
+
+"Nope," said Will. "Don't wanna know either. That's usually how these things go. You don't know, I don't know, and I'm totally just A-OK with the need-know-process. Easier to sleep."
+
+"But we *do* know," said Naram.
+
+"...you weren't supposed to. You weren't supposed to look in the box."
+
+DQ blew a raspberry. "Like we weren't going to open the box. Come *on*. How could anyone honestly expect us not to look?"
+
+Jin sat forward. "Probably by expecting that they were dealing with someone with more self-restraint than a kindergartner." DQ stuck out her tongue.
+
+"Yeah. So we opened the box, and you're probably not gonna believe what's inside," continued Naram.
+
+Will covered his ears. "Nope. Don't wanna know. Sleep. I like my sleep. I like to be able to go to sleep without thinking about...God knows what. Nope. Keep it to yourself."
+
+"So that's it? We're done?" asked DQ.
+
+Will, with food in hand, went into the kitchen. He returned without the food, carrying a sheet of paper. Naram caught a glimpse of it. A dizzying labyrinth of markings and arrows and equations. "Well let's see," said Will. He grabbed the sheet of paper he'd written on during the meteorology segment of the news. He began referring to both sheets, deciphering some kind of code, and writing out words on the paper. "Shit," he said. "Sorry for the language. But shit." He left the paper. "A weather machine? They want me to sit around with a weather machine, until they figure out what to do? Classic SGMA. Classic."
+
+"So now you know," said Naram.
+
+"Well yeah. I guess." Will began shaking his head, slowly at first, but then more confidently, more surely with his jaw clenching. "Nope. I quit. I resign. I, no. No way. Here." He handed Naram the papers, both the key and the transcription. Then he fished in his wallet and handed him a card. It read: "SGMA Member", on one line. Underneath that: "Toward Bluer Skies." On the flip side was an address to KWDZ news. Will, looked around at his tiny shell of home, a turtle receding desperately into his own personal fortress after catching a whiff of danger. "Now you can all do what you want, but I'm outta the game." He motioned for them to get up. He ushered them to the door, out of it. "Don't come back," he said once they were outside. He closed the door.
+
+"Fuck it let's leave it," said Jin.
+
+"Leave it!?" exclaimed DQ and Naram.
+
+"Yeah. We did what we were told to do. And more than enough of what we were told expressly not to do. We've had our fun. Whatever this thing is, whatever's going on, that Wilson is clearly scared and I think we should be too. Quit while we're ahead. For all we know, those cops could be coming here right now. I say we go. I got a job waiting in Shanghai. DQ, you've got your thing in The Bay. Naram...you'll figure it out. It's...it's just not worth it."
+
+"You're such a stick in the mud," said DQ. "Literally the most boring person on the entire planet."
+
+"Not literally," corrected Jin.
+
+"Exactly," said DQ.
+
+"Ok. Whatever. Fuck all that. This is a moment. This is The Manhattan Project. This is the Lightbulb. This is...I don't know...Benjamin Franklin and the kite." said Naram.
+
+"Carver and Peanut butter," said DQ. "Gotta represent."
+
+"Whatever," Naram continued. "This is big, is the point. Nothing you ever do will be this big. Nothing. A weather machine could change everything." Jin was shaking subtly, trying to contain herself. "I mean, Global Warming, hello? And not to mention food, crises. We'll be famous. We'll -- " She couldn't take it anymore.
+
+"-- Firstly, the thing about peanut butter is inaccurate. Carver is better understood as a botanist. And you," she said, pointing at Naram, then poking him sharply with her index finger. "How dare you. Nothing. Nothing I ever do will be this big? It's a device that can make it snow. Not to mention, drive people completely out of their freaking minds. Do you even *know* where I'm working? The kinds of issues we're working on, are at least on the scale of weather. So please. Hard to imagine that a little bit of criticism and your enthusiasm to keep going doesn't have to do with me and why *we* don't work."
+
+"Classy." said Naram.
+
+"I for one," began DQ, sitting now on the blacktop, "am glad that the air has finally been cleared, because *whooh* there was some real tension. Did you guys, did you guys feel any of that or -- "
+
+"-- what happens if we don't do anything? If we leave this thing with *Will*? You think Will is gonna know what to do if whoever Idris was so afraid of finally does show up?"
+
+"We wouldn't know what to do" said Jin.
+
+"Fair. But we can do better than Will." A wintery breeze knifed across the driveway. Jin thrust her hands into her coat and pulled her body close to itself. She waddled back and forth. She looked up into the sky, the first vestiges of black night diffusing through the pale blue gray. "You know what? Let's go to the airport. Right now. I'll drop you off and you can get on your plane to Shanghai. I won't call. I promise."
+
+Naram began to walk to the van. DQ followed. From inside the vehicle, they watched as Jin paced back and forth across the driveway. Eventually, Will came to the door. "I'd like you to leave now," he said, eyebrows twisted up, unsure how it was that they were all still there in his driveway. Just really puzzled by the sheer audacity of it. Jin walked, head down, to the van. She got in the passenger seat next to Naram.
+
+"Sky looks like it's about to open up," she said. "Plane'll be delayed, I bet. Let's just go to wherever you were gonna go."
+
+### The Nightly news
+
+Oslo Diggins didn't always just sit in his room and forlornly gaze out of his massive window. At night he watched the news. Religiously. He had strict rules about his nightly news. He was not to be disturbed. Not by anyone, or for anything. Not even if his mother died, and his mother was really the only living member of his family that he liked, even a little. The door was to stay locked. If you knocked, well, if you knocked you couldn't be too surprised if Oslo's personal henchman Doug showed up at your door in the middle of the night, apologized, and then proceeded to shoot and-slash-or strangle you. Obviously, strangling someone after they've been shot is gratuitous, but quite effective when it comes to really driving home the point that Oslo was not to be interrupted if the news was on and it was nighttime.
+
+Theories abounded as to what it was Oslo was up to when he watched the news. They ranged from unsavory to vile. In truth, what Oslo was up to, was rather tame compared to things people came up with. He was only using a codebook left behind by his deceased father -- whom he killed -- and deciphering the encoded messages within short segments of newscast, no more than a few minutes near the end. The weather segments. Oslo didn't understand it all. But it was something his father had shown him. Frequently, they disclosed the locations of newly discovered batches of meg-o-gel, every last droplet of which they were apparently hellishly determined to destroy. And why? Oslo couldn't understand it.
+
+This broadcast was different.
+
+Oslo didn't call Doug. He didn't call anyone. He didn't even call his bag-packing guy. He packed his own bag, and dressed himself. He had the jet prepared.
+
+(the eerieness of the empty resort. He has this interaction with his sister. Who's a fairly distraught mess.)
+
+The resort was eerie late at night. No one was hardly ever up and if they were they were insomniacs and those with such heavy things weighing on their consciences that even the resort's obnoxiously comfortable pillows couldn't do anything to help. Oslo was always up at that time, and when he did venture out and down through the echoing halls of the resort, he never spoke with any of the wayward souls milling about in the dark.
+
+Oslo, in an effort to ensure he didn't come into contact with anyone, went through a part of the resort where there was sure to be no one. It was the part he hadn't quite gotten to renovating all the way, intentionally, for occasions like that one. It was terribly cold there and there was so much dust that you could smell it. Oslo arrived at the final corridor leading to the exit and his private parking lot, but a light gleamed at the end. He tried to stop when he noticed it, but his footsteps boomed in the asphyxiating emptiness. "Hello?" asked a voice near the fire. Oslo ground his teeth and walked towards it. The gleam was coming from a low flame in a small nook. Two high-backed, leather chairs faced the fireplace. His sister Ester was sitting in the one on the right.
+
+"Oh my. Hello Ozzie!" she said excitedly. Ester was the youngest of the Diggins children. Only twenty-five.
+
+"Ester," said Oslo, conspicuously gripping his bags and making no motion toward sitting down.
+
+"Ozzie. Oh come sit, won't you?" She looked at his bags. "Where on Earth could you have to go at," she checked her watch, their father's watch, "three twenty-seven in the morning?"
+
+"Places."
+
+"Oh, come." She stood up and grabbed his arm. She was taller than Oslo. Oslo was the shortest one in the family. He wasn't bothered by it, per se. He was vividly aware of it, yes, thank you very much. But Ester could be as tall as she wanted to be. It was her prerogative. Should he be taller than her? Sure. In a fair world. But the world wasn't fair and Oslo knew that very well. And you could understand him refusing to stand next to her in family photos. And maybe the thing about him refusing to talk to her unless she was sitting down was odd at first glance but he hated looking up. His neck muscles fatigued quickly. No, any suggestion that it bothered him was ridiculous.
+
+Pulled into the left chair, Oslo rolled his eyes at the fire, briefly considered jumping in.
+
+"So Ozzie, we don't get to talk much. Never really. How are you?" said Ester.
+
+"Busy."
+
+"That's...that's good, I guess. For the CEO. I suppose I should be worried if you said that you weren't." She laughed and looked over at Oslo who refused to laugh along. She stopped laughing. "I finished school, recently, you know."
+
+"Congratulations."
+
+"No," she said, "I didn't graduate. I'm done. I quit. That school...just wasn't for me. Just a bunch of pasty, blowhards intellectually jerking off in front of a bunch of kids, basically. It's really kind of perverse when you think about it. And I figured...what's the point? I've always known what I wanted to do."
+
+"And that is?" Oslo dropped his bags.
+
+"Well, help run the company."
+
+"But *I* run the company."
+
+"Yeah, yeah, yeah. And I'm not trying to *impinge* or whatever. Gum up the works. I just want to help. In the little time I had with Dad, he really made me love what he did. And that's another thing. I want to figure out how he died."
+
+"But we, don't we, I thought, I mean, I'm *sure*...look, the police already looked into and they made their decision. Some part of the lift malfunctioned. If I were you, I'd just leave it alone."
+
+Ester's eyes grew distant, she slouched back into the chair. "And that's enough for you? You *believe* that? We know he had enemies. He'd tell me all the time that there were very bad men after him. Near the end, he said he feared someone close to him might turn on him. No. I don't think it's been looked into enough."
+
+"Hm. Well, you are...obsessive? Paranoid. Don't you think?"
+
+"No. Not at all. How could you -- "
+
+"-- okay, okay, here's...to take your mind off this, let's get you a job at the company, whatever department you want. You know we're working on getting that resort in Cancun ready? How does Cancun sound? Yeah, I really think you should go to Cancun. And just stay. As long as you want. Hell, maybe you'll never even wanna come back."
+
+"I'd like to work closer to you actually. We haven't always gotten to spend a lot of time together and -- "
+
+"-- well would you look at that," Oslo said as e checked his phone. " -- just got a text. Apparently they were really expecting me to be on the road by now, and well obviously, I am not. So if you'll excuse me." He stood up, grabbed his bags, and walked briskly to the exit. "Cancun!" he called back. "I know you'll love it!"
+---
+
+The biggest question is why would it be so pivotal that they figure out this mystery surroundign the machine? They have the machine already. I just can't think of a reason why Naram would feel so adamant about doing this. Unless...he thinks that the backstory and the history and this mysterious guy is key to the promise of greatness?
+
+I HAVE NOT INTRODUCED THE MYSTERIOUS GUY?
+
+---
+
+### Pirate Tv
+
+There can't just be a bunch of sitting there you know? It has to be active, active, active... I think the next steps need to be kind of definite, the reader maybe knows what the character needs to do next. Can't just be and this happened and then this happened
+
+Also...where are they? I don't have a definite location, they're just kind of in this van at the moment, driving around and doing things
+
+Story...the Illuminati of a video game world. Arms dealers in the video game world. Someone in the in this world of trading in virtual good. You buy time or you buy gold.
+
+"Well it wasn't easy," said Naram. He'd run into a local shop while DQ and Jin sat in the Van. He handed Jin the decoded messaage through the driver side window.
+
+I wonder. Is there any sort of requirement that one has to have some sort of embodiment of the other world? Something to take with you.
+
+I think the Canadians should show up when they're at the drop off point. Naram doesn't have faith in Will and in the moment, he takes the box under his own care and they head off, plunging head first into this mystery.
+
+"What's The Lot?"
+
+"A parking lot, I think. I have a theory."
+
+DQ grabbed the paper. "Which is?"
+
+"Parking lot. I think it's wherever this news station is?"
+
+--- the code sheet, which looks like some combination of a hastily scribbled treasure map and an arcane spell, the messing up of which might see you turn yourself into a chicken. But on the code sheet there is a clear notice. A phone number to be contacted only in the gravest of situations. A grave situation was not one in which a broadcast seemed like a random jumble of letters. Decipherable only with the most extreme care. The most likely reason for the intelligibility of the deciphered message was a specific kind of your own incompetence, said the letter. Only SGMA Union certified broadcasts, transmitted by SGMA Union members would contain any sort of message. You were instructed as a member to get into contact with one ASAP in the event of a move (probably sudden), or some other hasty dislocation. You were welcome to call the number for the nearest SGMA broadcast station. If you had somehow obtained this sheet of paper and were not an SGMA Union member, you were asked politely but firmly, to discard the sheet immediately and disregard everything inside.
+
+SGMA stood for Supranational Gaggle of Meteorological Adaptationists.
+
+Naram called the number. "Hello?"
+
+"What do you want?" said the voice on the other end. A young woman's.
+
+"Oh. Okay. I see. All business. I need the nearest SGMA news station."
+
+"Ok." The clicking keys of a keyboard, clacked on the young woman's end of the line.
+
+"There isn't one," she said.
+
+"What do you mean there isn't one?"
+
+"I mean the nearest one is a hundred miles away. There is an SGMA member, however, quite close by. Two, actually."
+
+"Well can you tell about the one whose name is not Wilson?"
+
+"Paul Argyle. And he broadcasts independently. According to this. Address?"
+
+"Mine...or?"
+
+"No thank you. Would you like Mr. Paul Argyle's address?"
+
+"Sure. Yes. Definitely."
+
+"1174 Sycamore Place. Will that be all?"
+
+"Yes, I do think so. Thank you very -- " She hung up.
+
+---
+
+"Most people don't know this," rambled DQ in the back of the Van, much to Jin and Naram's chagrin, "but the address types on the end of an address, like street, road, lane, etc actually mean something. Like place for example. Without ever seeing this place I know it's gonna be some kind of self-contained place. A dead end. Most people don't know that. It's useful information."
+
+1174 Sycamore Place was indeed a self contained area. It dominated an entire crest of a hill, at the end of a windy, and precarious drive. The house was the size of three houses. Naram had never seen a house so large. The outside was crammed with detailed, lacy woodwork with improbably delicate patterns tracing the windows. There was a frieze at the top, depicting several people in the process of being impaled if they weren't already skewered and hoisted on spikes, and at least one individual being burned at the stake. It was quite impressive.
+
+"This exactly the kind of house that becomes haunted. Just wait. Give it fifty years and a lapse in ownership where it can fall in to disuse." said DQ, marveling at the beautifully violent woodwork.
+
+"Agreed. Fifty years and a couple cobwebs and this place'll be scary as fuck." said Naram.
+
+Jin walked to the front door. She knocked. No one answered.
+
+"There's someone out back," said Naram. He walked around to the other side of the house, where there was a pool and a vertiginous fence surrounding tennis courts, keeping any rogue balls from losing themselves in the ample lawn. An older woman was serving over and over again toward a young man who looked like he'd played a lot of tennis. He was tan and the cords of his muscles pulled up against his taut skin clearly in the sunlight. He played the serves effortlessly, never extending, just tracking the ball and returning it in single motions. "Paul?" called Naram. The man stopped and balled whizzed passed him and into the fence with a tinny clng.
+
+"Ha!" said the old woman. "Got you!" The man pointed to Naram with his racket. The old woman turned briefly, then waved her hand, and turned back to the court. "Paul's inside," she said.
+
+"But, do you even know who these people are ma'am?" asked the man.
+
+"No, but if they're asking for Paul maybe they're his friends. And if they're not, at least they know Paul exists, so they're potential friends. Paul needs friends Antoine. And if they're hear to kill him, I'll be sad, but that's not entirely bad either. I'd have my basement back at least." She slapped her hand with the racket. "Alright Antoine lets play a couple. I think it's my day."
+
+The door to the basement was closed. Even so, a slightly moldy smell seeped into the hall through the sliver of space between the door and the floor. And there was the smell of pizza blended into that but it wasn't quite right, like the cheese had long since dried out and the pepperonis -- exposed to the open air -- had changed into something somehow less than pepperoni. Jin slammed the butt of her fist into the door. "Paul?" Something fell hard, and then scrambled over to the door, slowing up as it neared.
+
+"Who?"
+
+"Paul Argyle." said Jin.
+
+"Say we're with the SGMA," DQ whispered.
+
+"We're with the SGMA," said Jin.
+
+The door opened. Paul walked back to his cranny where he'd fallen over in his chair. He was wearing nothing but his underwear. Paul tried to straighten up, throwing books off his desk, brushing the powdery patina of dust from his computer monitor. At the end of it all he plopped heavily into his computer chair and grabbed a piece of pizza from a box sitting on a treadmill that had clearly never been used as anything other than a table. "Feel free," he said, indicating the box of pizza. The pizza had no sheen. It looked like it belonged in a child's toy kitchen, and thus not like anything one should actually attempt to swallow. A clear choking hazard.
+
+"Paul, we're here because -- "
+
+" -- I know. The Machine. Crazy shit. Personally, I don't buy it. Klein's a crazy bird. Always provocative that one."
+
+"How did you know?"
+
+"I watch all the broadcasts man. I have to. I mean, you've seen my show so -- "
+
+" -- no. We haven't."
+
+"Oh." Paul, stopped mid-bite and swallowed. He tossed his half-eaten slice back in the box. "Well, I basically broadcast and sum up other broadcasts. And it's pretty cool." Paul, a thirty-something, had the strange look of a bearded, pitiful, freak-show boy on the playground who'd just had his lunch money stolen and sand kicked in his eyes.
+
+"Why don't you believe it?" asked Naram.
+
+"Lemme show you something." Paul tossed on a pair of sweatpants that were lying inside-out on the ground. He bounded up the steps of the basement and trekked through the guts of the Victorian manor. They came to the back of the house and went down the back steps, past the tennis courts.
+
+"Jesus Paul!" shouted Mrs. Argyle. "Put a shirt on! You're embarrassing me." Paul didn't say anything. He just smiled at her and kept walking by, leading Naram, Jin, and DQ towards a gargantuan building maybe a hundred meters away. "I swear to god Paul if you're going to the pool house it'd better be to take all that shit down. You're not taking over two parts of my house!"
+
+Paul stopped this time. He turned around, arms jutting out towards Antoine. "Are you kidding me mom?! I say nothing about this whole thing, I say not a single thing, even though it's weird as all hell -- and you're still gonna get on my back? Seriously?"
+
+"I have no idea what you're talking about Paul. I'm training. Antoine used to be a fabulous tennis player. Almost made the Canadian Open. He's a wonderful coach."
+
+"Oh yeah mom. I know he's got a great stroke. You were raving about it last night. I couldn't sleep."
+
+Antoine was suddenly, despite expending zero to no effort all day, very sweaty and badly in need of a towel. He grabbed one from near his pile of equipment, placed it over his head, and sat down directly on the scorching court.
+
+"I don't know what you could possibly be talking about," said Mrs. Argyle, quite red in the face.
+
+"All I'm saying is, as long as you're gonna be fucking that Quebecois booty-call and expecting me to look you in the eye on a daily basis, I'm going to keep my shit in back. Okay mom. C'mon guys," he said. "Oh, and it's not shit mom. It's quite important. Matters of national security."
+
+Paul, Naram, DQ, and Jin continued on to the pool house. Behind them on the tennis courts, Mrs. Argyle ravaged her racket, slamming it into the court, like a wife who's just lost it stabbing her no-good, cheater husband, though he was dead a couple hundred stabs earlier.
+
+Inside the pool house, Paul stopped at the door to whatever he was trying to show them. "Listen, I'm sorry you had to see that. It's just...the nerve right? I mean, you get it man. What if that'd been your mom, just casually bangin' her fitness instructor?"
+
+"Oh yeah, definitely. Totally. I get it. Crazy." said Naram.
+
+"Thanks man." said Paul.
+
+The tiny room, amongst the empty and variously cobwebbed containers of pool-shock and chlorine, was a web of red yarn running back and forth between news clippings and blurry photos printed from the internet.
+
+"What is this?" asked Naram.
+
+"C'mon you've seen these right? It's like one of those things. From the movies? That the detectives use to figure out a case or something when nobody believes them, but they know they're right?"
+
+"Or they could just be genuinely insane," said Jin.
+
+"Sure, they could. But they aren't. I'm not." Paul scratched his scraggly beard, swiped his hair out of his face. He patted the residual grease left on his palms into the absorbent cotton fibers of his pants.
+
+"Okay. But...what is this?" said Naram, again.
+
+"Project Witchdoctor man. Totally real, but as far as the tech, I think that's lost to time. Still plenty of intrigue and mystery figuring out what happened and who's involved though. You know the SGMA is a direct result of that?"
+
+"Excuse us one second Paul," said Naram. He, Jin, and DQ walked out of the closet and closed the door, leaving Paul on the other side.
+
+"Ooh. It's kinda dark in here guys. I--that's cool I guess. But if you could, could ya just, keep it short out there. I'm kinda claustrophobic."
+
+"Doubt it Paul," said Jin. The three of them huddled.
+
+"I say we enlist Paul. Show him the machine and have him help us crack this thing wide open." said Naram.
+
+"Are you batshit? Have you seriously, just dived off a cliff, straight into insanity. Hell no. That guys a loser. He's washed up."
+
+"He's been looking into this thing. Nuts or not, that...thing is pretty impressive."
+
+"I'm with Jin." said DQ. "This guy is weird. But, I do think we could get some stuff out of him. I say we show him the machine, get everything he knows, and we dump him. Leave him to die in his mom's basement."
+
+Antoine is a result of Glick and Fournier having bungled up the original scheme. He's a sleeper in the field that Winston deployed a while ago. He begins tracking the kids as well.
+
+---
+
+"No way. I don't believe you. Run it," said Paul as he looked into the back of the van, where the machine was sitting quietly.
+
+"No we're not just gonna *run it* Paul," said Jin.
+
+"Yeah. Weird shit happens when you run it."
+
+"Not to mention the meg-o-gel," added DQ.
+
+"Meg-o-gel? This runs on Meg-o-gel?" Paul slapped himself.
+
+"Paul?" inquired Naram, inspecting Paul's limp face. "Paul?" Paul was unresponsive. In fact, for the next five minutes the only thing was did was stumble backwards from the van, and pace in rigid concentric circles. This lasted for a while.
+
+Unbeknownst to our daring trio and Paul, a certain Quebecois former semi-pro tennis player was watching them through binoculars from the roof, where he was sunning and half-heartedly applying lotion to the spotty hide of Mrs. Argyle. "Oh Antoine, what are you looking at? I can't see how anything out there could possibly be more interesting than what's going on right here. You and me. The sun. The *heat*." Antoine shuddered, but it was all internal. He was, above everything, a professional.
+
+"One moment, *mon canard*."
+
+"Oh Antoine, stop it! You devil."
+
+Antoine put the binoculars down. Antoine squirted lotion into his hand. The name of the fragrance was *Sexy Bitch*. God willing, Antoine would be gone the next day. But first he had to make a call.
+---
+
+### From Sea to Sea
+
+Winston LeBlanc, Prime Minister of Canada was reading through important documents, with his bifocals perched adroitly just short of the tip of his nose. His phone rang. The special line. The one for weather machine.
+
+"Hello?" he said.
+
+"Yes, Mr. Prime Minister this is Agent Big Mac."
+
+"Ah yes. If I'm being honest I can't say I was expecting to hear from you. How goes it? That woman's insatiable right? My god. Never seen anything like it."
+
+"Yes. It is something. It's here though so. Out of the blue. It's here."
+
+"What're...you're saying the machine is there? At the house? How? You're not telling me that idiot, the old woman's son, he somehow -- "
+
+" -- no sir I think it's all just a stroke of good luck."
+
+"I'll say."
+
+"So what, kill 'em all? Take the machine?'"
+
+"Well, no Big Ma -- Antoine, no, Christ. Incapacitate them or something."
+
+(the old woman, being at this point so amply lubricated, tries do a dramatic swoon away from Antoine as he demands he has to go and says she's suffocating him, and she falls off the roof)
+
+(she falls and the group looks up with Antoine, right there and it looks like Antoine pushed her off the roof. Paul was the only who actually caught the entire thing and he says: Jesus Christ, I think the tennis coach just killed my mom. Snapped. Couldn't take it anymore.)
+
+(Antoine proceeds to take out a gun and shoot at the van and the kids have to get going. And they ultimately opt for the turtle strategy, letting Antoine get close and then running the device and turning it on him. There aren't enough goggles, and after a brief run in with the paul, Naram is exposed to the device as well and he sees some things from his past transfigured in weird ways)
+
+Eleanor gets updated on the device. She thinks its absolute madness. But she does want this whole thing looked into. If it's real, and this goes without saying, she wants the device.
+
+---
+
+
+### A.B.G. (Always be glowering)
+In which we jump back to Doug, contemplating what to do with the phone now that Idris got away, maybe not quite where he decides to turn the tables
+
+Naram tells this guy to "fuck himself." There's a lot of bravado a lot of Naram feeling himself because of the machine. He proceeds to get ill, and throw up all over the side of the moving van
+
+### Thin lines
+
+(Fournier and Glick bend the rules, as they take the entire Jones family in. I think they just talk about it.)
+
+(Glick caught the license plate. Eidetic memory, so he says. Turns up Doug's car which has North Dakota plates)
+
+###
 
 ### The End
 
 ### The End, really (this is more of a prologue. hate this)
+(I don't think he and Jin end up together)
 (DQ needs to be somewhere in the epilogue)
 Naram sat in his chair on the cafe patio under the awning. He was drinking tea. It was raining. The street was dead except for one bubble of ecstatic life, a group of five kids, kicking a ball through the pooling puddles. Naram heard shuffling footsteps behind him.
 
@@ -914,6 +1312,8 @@ Naram laughed.
 
 # Appendix
 
+(GLICK IS A SPY FOR THE US, A DOUBLE AGENT, although he does acquire a fondness for Fournier in the end)
+
 (there's something they need to figure out, although I was anticipating that it was the sm's who burned down the lab. What's missing? What could they be searching for?)
 (idris makes a cursory reference to the supranational meteorologists. The weathermen since she's got a plan to reach out to Gates Diggins. A plan which ultimately gets her killed.)
 (something about the essentialness of the now incredibly rare and nigh-defunct meg-o-gel) <- maybe there isn't any and they need to find some
@@ -934,3 +1334,7 @@ Naram laughed.
 (the gang, after they run the machine, they find themselves in the predicament of needing to save themselves, without really being able to appeal to outside authorities because the nature of what the device)
 
 (Oslo and his father had a lot of disagreements over the use of meg-o-gel)
+
+(I think doug betrays oslo)
+
+(how to make naram more active, likable, charming)
