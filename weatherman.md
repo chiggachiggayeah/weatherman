@@ -1256,19 +1256,121 @@ Winston LeBlanc, Prime Minister of Canada was reading through important document
 
 "I'll say."
 
-"So what, kill 'em all? Take the machine?'"
+"So, kill 'em? They've already seen the thing and as you well know, tying up loose ends tends to be quite the pain in the -- "
 
-"Well, no Big Ma -- Antoine, no, Christ. Incapacitate them or something."
+" -- No. Christ. Incapacitate them or something."
+
+"Will do sir."
+
+"And toss this phone. You know better."
+
+"Of course sir."
+
+"Antoine? Mon amour? Are you done? I think I'm ready for you to address my other side." Again the shiver, fastidiously suppressed.
+
+"Actually," Antoine began, not looking at the widow, but instead surveying the scene at the van, "I'm feeling sick of the sun."
+
+"Sick of the sun? It's me isn't it?" Her face grew dark and bitter, the jaw dropping to purse the lips into a pout. "Just say it if you're through with me Antoine. You don't have to spare my feelings. I'm just a raggedy old lady. I understand." She stood dramatically, and leaned with nearly all of her body weight on the railing.
+
+"No. It's not that duckling, it's...so warm. Maybe we could go inside. For a little while?"
+
+Mrs. Argyle threw the back of her hand up to her forehead, as though she were seconds from fainting. "So the world doesn't have to see you with an old, wrinkling hag Antoine? You're breaking my heart."
+
+This was an almost daily game. Like she was in the midst of some black and white, Bogart-era romance. "I don't mean to. I'm just tired of sunning. I don't want to break your heart, obviously."
+
+The dowager Argyle then rushed into Antoine's body, pleading pitifully into his face with the affected look of the one of those old cinematic starlets. "Then say it Antoine. Say that you love me!"
+
+"Oh...well...I can't do *that*." Mrs. Argyle sobbed and hurled herself back at the railing. She did this a little too fast, it turned out, and in a brief panic she reached out with her hand to stop herself from accidentally going over. What they say about the dangers of tanning is absolutely true. Mrs. Argyle's hands, in their extremely lubricated state, did little to stop her momentum and she tumbled over the rail. She reached back for purchase as she went, but alas, her fingers slipped and glided along the metal unable to find a solid grip. In their defense, the makers of Sexy Bitch sun-tanning lotion never claimed that their formula was non-greasy. Mrs. Argyle tumbled fatally, not unlike Icarus, through three stories worth of empty air. She landed amongst the tasteless flock of flamingos and cherubim in the front yard.  
 
 (the old woman, being at this point so amply lubricated, tries do a dramatic swoon away from Antoine as he demands he has to go and says she's suffocating him, and she falls off the roof)
 
 (she falls and the group looks up with Antoine, right there and it looks like Antoine pushed her off the roof. Paul was the only who actually caught the entire thing and he says: Jesus Christ, I think the tennis coach just killed my mom. Snapped. Couldn't take it anymore.)
+---
+Paul Argyle was in the middle of finagling a run of the weather machine out of Naram when he heard the dull, sickening thud to his left. He saw the blotchy, broken body of his mother in the yard. He traced her descent to the roof, where Antoine stood leaned over the rail, staring at the body. Antoine looked at Paul just at the moment Paul's gaze hit him. "Jesus Christ. He snapped. Killed her." said Paul, gradually descending into shock. Antoine recognized that this was one of those point of no return moments. His years of training allowed him to assess the situation so impartially, without the threat of any sort of post-mortem hysterics effected his ability to complete the mission. Carefully strapped to his rippling inner thigh was a compact and easily concealed Ruger, which he removed now, and loosed on the party gathered at the van.
+---
+Naram grabbed Paul and tossed in the back of the van, and then got in himself afterwards. DQ, since she was the best driver, figured now was an ideal time for her to take the wheel. Jin got in the passenger seat.
+
+Bullets pelted the exterior of the van as it lurched violently from the curb, defribilated from the realm of the dead.
+
+"We're not going to outrun this guy," said Naram.
+
+"Who *is* that guy?" asked Jin, impaling Paul with the knives in her eyes.
+
+"I don't know. He's just a tennis player. From Quebec."
+
+Naram groaned. "Quebec. Oh god. This is not good."
+
+"No." said Jin. "You think he's with the Canadians. The ones Idris warned us about."
+
+"Yeah Jin, I do. I can't really think of any other good reason why a tennis trainer might have a gun in his shorts. And then try to shoot us with it."
+
+"Unless he's got a record," said DQ. "I mean, he tossed Paul's mom off the roof and we were witnesses and maybe he didn't want to go back."
+
+"No, no," started Paul, "this *does* make sense. I've caught him a number of times just lurking in the pool house. Always said he was just taking a swim but he never smelled like Chlorine. Plus he's Canadian."
+
+Naram could hear the sound of a car moving at speeds well beyond the neighborhood speed limit behind them. "Oh shit," breathed DQ. The van's frame shrieked as something careened into them from the back. DQ barely managed to stay on the road. The other car accelerated again. "Brace yourselves," she said. This time, the van spun like the least fun tilt-a-whirl of all time. Naram was nearly crushed under the machine, the centripetal force sent it skidding along the metallic bed in back.
+
+The van came to a stop in the middle of the road. Antoine, in the other car, pulled over. The car door opened, and footsteps came closer over the bits of glass and metal strewn across the street. "What the fuck are we gonna do?" asked Paul.
+
+Antoine stalked close to the van, triumphantly. It'd gotten dicey there for a second. That beautiful smirchless record of his nearly besmirched. He loaded the Ruger. He flung the back doors of the van open. He was blinded by a psychedelic deluge of radiance and a very odd smell.
+
+Jin and DQ, once they were sure it was safe, circled around to the back of the van. The sky was growing petulant and dark. Trees bent in the whipping wind. They found Paul staring confusedly behind his goggles at Antoine who was undulating to a cosmic rhythm no one but him could hear. Naram was staring with bulging open eyes at the van's roof. Jin snapped and clapped her hands but he was entirely unresponsive. There hadn't been enough goggles for everyone, and Paul slapped Naram at the last second, distracting Naram just long enough to grab the last pair.
+
+"Well that's not good," said DQ.
 
 (Antoine proceeds to take out a gun and shoot at the van and the kids have to get going. And they ultimately opt for the turtle strategy, letting Antoine get close and then running the device and turning it on him. There aren't enough goggles, and after a brief run in with the paul, Naram is exposed to the device as well and he sees some things from his past transfigured in weird ways)
 
 Eleanor gets updated on the device. She thinks its absolute madness. But she does want this whole thing looked into. If it's real, and this goes without saying, she wants the device.
+---
+### The Cavalry
+(Glick and Fournier get brought in, upset to know that Winston had already brought in another agent.)
+---
+
+### Naram's Daydream
+(some flashback where there's a moment where Fuwaz talks poorly about jiddo and says that they'll never let Naram in, that whole line)
+
+For the rain, driving became impossible. The groaning winds and cavernous shouts of thunder rocked the van from side to side. Antoine, they tied up. And left him back in the house, perversely, in the same room as the latest and late Mrs. Argyle.
+
+Naram was motionless on his back. Not unlike a fish, suddenly dead and floated to the surface after a surge of lightning hit it's little patch of water. This is the image that came to Jin's mind. She'd seen it once. In  a storm. Schools of dead fish floating to the surface after a lightning strike. He looked dead, except for his eyelids fluttering constantly.
+
+"Where do you think he is?" said Jin. She was sitting in the back, a semi-clean sock at the ready, just in case Naram went all epileptic and had to be kept from swallowing his own tongue. She hoped it didn't come to that. It was ok because her feet didn't sweat much.
+
+"Who knows," DQ replied.
+
+In fact, he was a fifteen hour flight away, plus several years in the past, back in Kuwait. He was in his father's shop.
+
+"And what do you say when they say they want the base model?" Fuwaz, his father asked.
+
+"I recommend the silver model." said Naram. He'd been thirteen when this had happened, but in the disfigured dream, he was himself, twenty-five and hopeless.
+
+"Yes, but what do you *say*? Verbatim."
+
+"I'd actually recommend the silver model. For only a hundred dollars more, you could be twenty percent cooler!" said Naram, forcing his face into the manic smile of the salesman, where, it seemed, the most important thing was to show as many of his teeth as possible.
+
+"No. No." Fuwaz looked ready to gauge his own eyes out. "What's...what's that?"
+
+"I was smiling." said Naram.
+
+"*That's* not a smile. It's like you're a gorilla or something. Trying to assert your dominance."
+
+"That's not wrong...right? I mean we're primates, I *am* trying to relieve these other primates -- our customers -- of several hundred dollars."
+
+"Sure, but we don't want *them* to feel like you're eyeing their jugular."
+
+"Whatever dad. No way Jiddo was this hard on you." Naram wanted to suck all the words back into his mouth after he said them, like he'd accidentally drooled in public and had to slurp it back, cold and viscous, before anyone saw. Instead, the room was like a chamber on a space station, and he'd just opened the pod bay doors, absorbing all the air and sound and jettisoning it all -- himself included -- into the pitiless vacuum of space. "Dad I'm sorry -- "
+
+"-- you don't even know my father. And he wasn't in the shop for even one day. Other than the day he told me he was leaving. No. It was just me and my uncle. And now you. And then maybe your son. A family run shop the way it should be. But you'll have to get your sales-pitch down pat first. The key, Naram, is that you have to make people feel like they're getting a deal here. You don't have it yet but eventually you'll get it. The eye, where you can just tell what they're gonna buy. When you know you start out with the highest models and walk them down to the model you were actually selling them all along." Fuwaz tapped his head. "Mind games. The specialty of every great salesman. But you'll get it. I know it."
+
+Naram never sold a single air conditioner.
 
 ---
+
+They awoke at the same time. Naram and Antoine. Naram had experienced the sensation of returning from elsewhere like that one other time. When he'd had to get his tonsils out, and they had given him anesthesia. He remembered waking up delirious, in a restaurant, a bowl of vanilla ice cream and sprinkles put carefully in front him. It'd be little more than ice cream and soup for the  foreseeable future. He remembered his mother's ecstatic face, smiling but not recognizing that he'd only just then crossed the threshold back into the world of the living and was terrified because he had no idea where he was; barely any grasp of who he was, if he was honest. He remembered crying inconsolably and that ruined his ice cream, dilluting it with salty tears. But the worst bit was that he didn't know *why* he was crying, nor did he have the slightest idea how to stop.
+
+Antoine awoke on the side of the road. His head swam with the smell of mud and ozone.
+
+### About time
+
 
 
 ### A.B.G. (Always be glowering)
