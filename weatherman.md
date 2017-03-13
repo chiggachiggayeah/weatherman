@@ -358,6 +358,7 @@ The squadron stormed the building, rushed in, threw open the doors...and there i
 Eleanor exhaled shakily. Could this be happening? It seemed too simple. The nightmare was contained, the spider, now situated in plain sight underneath the jar. She walked outside. The sky was writhing. Where sun had bathed everything, there was now an unassailable veil of melancholy gray. The winds and the tumult ceased for a second or two, all sound sucked out of the world by some cosmic vacuum. And then it began to rain. It didn't stop.
 
 ### Project Witch Doctor
+(Naram built the machine, with the help of DQ and Jin, thinking he was doing it in secret (with the stolen blueprints) but Idris found out and now she's trying to keep them all safe)
 
 "Hurry up Franklin. I've got five minutes." Franklin was close to the floor, vertically challenged, no more than a couple inches over five feet. He was also roundish, and clumsy, and still nervous around the President. It was only a couple of weeks into the administration, to be fair. Nevertheless, he tripped over his feet to her desk, and across it he slid a file, stuffed to the height of turkey club where the sandwich-maker has been incredibly withholding. Eleanor Galloway looked at the urgently red stamped title and scoffed.
 
@@ -900,7 +901,7 @@ Jin was actually from near that part of Boston. "Sorry we can't all be from The 
 
 "I know you are" said DQ.
 
-Naram could hardly remember his little apartment now. After so long, his dorm seemed more like home than that apartment where his room hadn't changed since almost a decade ago. This was entirely thanks to his mother. Fuwaz had long since wanted to change it into a kind of entertainment room, or at the very least rent it out. Fatma refused to change the room in an effort to preserve some shimmer of that boy who'd once inhabited it, and so it staid untouched, gathering dust and horrifyingly infinite, like a tiny creature caught in amber. What Naram *could* remember was nothing like what he saw swimming around him. "You *do* have to admit, it is kind of awful when you really look at it. Artificial." Jin didn't say anything.
+Naram could hardly remember his little apartment now. After so long, his dorm seemed more like home than that apartment where his room hadn't changed since almost a decade ago. This was entirely thanks to his mother. Fuwaz had long since wanted to change it into a kind of entertainment room, or at the very least rent it out. Fatma refused to change the room in an effort to preserve some shimmer of that boy who'd once inhabited it, and so it stayed untouched, gathering dust and horrifyingly infinite, like a tiny creature caught in amber. What Naram *could* remember was nothing like what he saw swimming around him. "You *do* have to admit, it is kind of awful when you really look at it. Artificial." Jin didn't say anything.
 
 Four Watercrest was no more or less plasticky than anything that surrounded it. It was a middle-of-the-road brand of house, a house made for everyone and thus a house made for exactly no one at all. It was one story and angular. The angles were perfect. No decimals. The house was white. The most daring thing about the house was the three-paneled window that looked out from the living room onto the doorstep. It was the architect's one grasp at a semi-distinguishing feature, something he knew this kind of inhabitant wouldn't like, but they'd tolerate, as was their nature. The three of them stood on the doorstep and rung the bell.
 
@@ -1357,20 +1358,120 @@ In fact, he was a fifteen hour flight away, plus several years in the past, back
 
 "Sure, but we don't want *them* to feel like you're eyeing their jugular."
 
-"Whatever dad. No way Jiddo was this hard on you." Naram wanted to suck all the words back into his mouth after he said them, like he'd accidentally drooled in public and had to slurp it back, cold and viscous, before anyone saw. Instead, the room was like a chamber on a space station, and he'd just opened the pod bay doors, absorbing all the air and sound and jettisoning it all -- himself included -- into the pitiless vacuum of space. "Dad I'm sorry -- "
+"Whatever dad. No way Jiddo was this hard on you." Naram wanted to suck all the words back into his mouth after he said them, like he'd accidentally drooled in public and had to slurp the cold and viscous rivulet back up, before anyone saw. Instead, the room was like a chamber on a space station, and he'd just opened the pod bay doors, absorbing all the air and sound and jettisoning it all -- himself included -- into the pitiless vacuum of space. "Dad I'm sorry -- "
 
 "-- you don't even know my father. And he wasn't in the shop for even one day. Other than the day he told me he was leaving. No. It was just me and my uncle. And now you. And then maybe your son. A family run shop the way it should be. But you'll have to get your sales-pitch down pat first. The key, Naram, is that you have to make people feel like they're getting a deal here. You don't have it yet but eventually you'll get it. The eye, where you can just tell what they're gonna buy. When you know you start out with the highest models and walk them down to the model you were actually selling them all along." Fuwaz tapped his head. "Mind games. The specialty of every great salesman. But you'll get it. I know it."
 
 Naram never sold a single air conditioner.
 
 ---
-
 They awoke at the same time. Naram and Antoine. Naram had experienced the sensation of returning from elsewhere like that one other time. When he'd had to get his tonsils out, and they had given him anesthesia. He remembered waking up delirious, in a restaurant, a bowl of vanilla ice cream and sprinkles put carefully in front him. It'd be little more than ice cream and soup for the  foreseeable future. He remembered his mother's ecstatic face, smiling but not recognizing that he'd only just then crossed the threshold back into the world of the living and was terrified because he had no idea where he was; barely any grasp of who he was, if he was honest. He remembered crying inconsolably and that ruined his ice cream, dilluting it with salty tears. But the worst bit was that he didn't know *why* he was crying, nor did he have the slightest idea how to stop.
 
 Antoine awoke on the side of the road. His head swam with the smell of mud and ozone.
+---
+
+Meanwhile, in a car about an hour away, Glick and Fournier ruminated about their quickly dimming futures. Fournier's phone buzzed when a new message arrived.
+
+### The Maw
+(somewhere in washington)
+(they're descended upon by several players in this game)
+Paul knew of a weather station a couple hours away. He told them everything he knew.
+
+"It's touchy. None of them like to talk about it. It ruined careers. Lives. It was a gamble. Afterwards, with nothing to show for all of it, they were kooks, drained of all credibility in the scientific community. Sure they could still get jobs as meteorologists on the local news, but for them? Hard to think of anything more humiliating." he said.
+
+"Who got them all together?" asked Naram.
+
+"LeBlanc. Prime Minister of Canada. The current PM's daddy."
+
+"Yay for nepotism," said DQ.
+
+"But why?"
+
+Paul's eyes set out on an expedition across the roof of the van, circumnavigated the entire thing including the dingy corners, and came back. "No clue. Can't get anything out of anyone. It's like...well I just get the feeling that they all know, but none of them are willing to say. It seemed like fear with some of em. Something else with others. Like when you don't wanna say anything because you don't wanna look dumb."
+
+"Oh well Naram knows all about them," said DQ, with a look at Jin, sleeping, and then Naram.
+
+"Shut up," said Naram. "One question Paul: why the hell do you give a shit about any of this."
+
+Paul leaned back. "My mom, she's involved. *Was* involved. She's, well, dead now. That's not *my* web in back, in the poolhouse there. That was our project. The old man was a pretty good dude and all when I saw him but my mom was always around. She gave up all of it for him. I think the web was a way to keep from absolutely cracking up for her. And it's not like I made a promise on her grave or anything out of a flick like that. But she got me hooked in and...well I think I owe her that much."
+
+"God damn Paul," said DQ.
+
+"Yeah dude, Jesus," added Naram.
+
+"Can you, like, can you say that? Shouldn't you say like Allah or something?"
+
+"Yeesh," said DQ.
+
+"I'm actually not Muslim Paul, so no."
+
+"Oh," said Paul turning away for another round of van interior exploration. "Why're you interested?"
+
+"Always have been," said Naram.
+
+"And Naram's nosy as shit," said DQ.
+
+"*Curious* as shit. I couldn't not put the thing together, ok? And *you* helped so you're not an angel or anything *Diana*." DQ flung ocular daggers. "No way to know it was gonna turn out like this."
+
+"And you Diana?" Paul asked.
+
+"DQ, Paul. Everyone that's ever called me Diana is dead. If you get what I mean."
+
+"Yeah I think so." Naram watched as Paul's Adam's apple surged in a gulp.
+
+"Great. Well Paul, normally I don't give a shit about meteorology or the weather. But as it turns out, there are some riveting Robotics in the thing. Naram just wanted me to build what was in the schematic but that's not how I roll. Tech and The Field has moved on so far since then that it didn't make sense to build Cumulus 1.0 over again when you could have the next generation. Couldn't get around the pesky Meg-o-gel necessity though."
+
+Naram saw the gulp again. "Did you just say Meg-o-gel?" asked Paul.
+
+"Yeah," said DQ. "Even Miss. Chen -- some would prefer if that were Mrs. Nazari -- even she couldn't crack. And she's like stupid at Chemistry. Stupid in the sense of the exact opposite of the word. She's a genius. Wound up as all hell, but brilliant."
+
+"Shit, shit, shit, shit, shit. And you guys haven't noticed anything weird since all this started. No ones come after you, aside from Antoine."
+
+"When we first started out, there was some weirdness with three guys. Two guys chasing another guy," explained Naram. "The guy they were chasing -- he was wearing a sweater vest for some reason -- he got away but not before slamming into me and dropping everything he was carrying. A case of the stuff. In his rush to get the hell outta there he dropped some."
+
+"So you stole from *them*!" said Paul.
+
+"Them?" Naram asked.
+
+"Some really bad *hombres*," said Paul. "Meg-o-gel is like catnip to these guys and they've figured out a way to trace the shit. Not to mention you also fucking stole from them. They're coming for you. No way their not. We're in more danger than I thought. These psychopaths and the Canadians."
+
+Night had started to drift down, dusting the streets and stunted buildings in a melancholy haze, when they arrived at the station. Jin was still asleep so they left her. They were at the door when DQ noticed that Paul was wearing nothing but his underwear. "Can you give him some clothes Naram?"
+
+"No time," said Paul. "Besides it's fine. Just neither of you say anything. They'll recognize me. These are *my* people."
+
+The inside was linoleum and heartless chartreuse walls. Curious stains pocked the floor in intervals that corresponded with convex and panicked spots in the ceiling. "The command center," said Paul at the maw of a busy room, out of which the choking scent of dust wafted. There was a bucket to the right just before the doorway. It was nearly brimming over with the jaundiced water dripping through the panels of the ceiling.
+
+The setup in the "command center" looked nothing like a place where any kind of important decisions were made. It didn't even look like something that could have passed for a ho-hum, modern newsroom. It looked more like a knock-off of the set of Jeopardy!, with a gigantic three-by-three wall of flickering monitors, amidst a sea of wires and carts just about to buckle under the weight of archaic televisions. No body knew the three were there, or even alive.. Each of the sweat-stained, exasperated bodies in the room was watching the wall of monitors. Each glowing square changed in its own time, until the entire wall was the tessellated, mustachioed face of one Ben Abraham, Meteorologist.
+
+There was nothing odd about any of it. Besides the Wizard of Oz head leering down at them. It was just a normal guy on the news giving the weather. Or it *sounded* that way. On some of the monitors on the carts, the three could make out a transcription slowly forming. "Impressive setup," said Paul.
+
+The gathered personnel grew uneasy. The transcription, once it was complete and the humongous head had dithered out of existence, said something that was apparently quite alarming. As more and more of them read the words, the room felt like a pot coming to boil. One second all the sets of eyes glanced at one another, surreptitiously checked the locations of the exits. The next, they were literally trampling one another to escape, like a monster had been loosed in the room. A violent mass of oblong and fear-reeking bodies heaved towards the doorway where DQ, Paul, and Naram were standing. The power cut off abruptly. Before it did, Naram saw one woman faint and drift down amongst the stampede of heeled feet. Scenes of Black Friday carnage swam to Naram's mind. Thinking fast, he grabbed Paul, who grabbed DQ and the three of them drifted into a tributary off that main hallway.
+
+They were safe.
+
+The commotion subsided, the three headed outside. To the right of the exit were the bathrooms. The door to the men's room opened, and out walked a small man, carrying a briefcase, and swallowed up in a trenchcoat that slid along the floor behind him in a train. "Hey," said Naram to the man. He turned around, frightened, and dropped his briefcase. With his back against the wall, he fished in his pockets and pulled out his wallet.
+
+"Here," he said.
+
+"What?" said Naram, "I'm not mugging you."
+
+"Oh," said the man. He picked up his briefcase, and a smidgeon of dignity returned to his face. "Well what then?"
+
+"What's the news? Why did everyone freak out."
+
+"Didn't you see? Did you not read the transcription?"
+
+"No. I wouldn't be asking if I did."
+
+"No need to get snooty."
+
+"Sorry. Please."
+
+"The Weatherman. He's back." And then the man flew out of the doors. He threw his briefcase in a Voltswagon Beetle, and ripped off the lot.
+---
+
 
 ### About time
-
 
 
 ### A.B.G. (Always be glowering)
@@ -1413,6 +1514,14 @@ Naram laughed.
 
 
 # Appendix
+
+(the weatherman, jiddo, was this kind of eco-terrorist, a pioneer in weather mediation technology. He felt the nations of the world could not be trusted and should be brought to heel under the force of the weather.)
+
+(grand belief of jiddo's how countries and all these artificial divides are meaningless)
+
+(I think Naram is identified as having this weather machine, all of them, and they're made to feel guilty over it, bc of things like race and them being unAmerican)
+
+(one glaring plothole is, how does anyone track them?)
 
 (GLICK IS A SPY FOR THE US, A DOUBLE AGENT, although he does acquire a fondness for Fournier in the end)
 
