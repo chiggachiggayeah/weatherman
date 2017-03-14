@@ -1372,7 +1372,7 @@ Antoine awoke on the side of the road. His head swam with the smell of mud and o
 
 Meanwhile, in a car about an hour away, Glick and Fournier ruminated about their quickly dimming futures. Fournier's phone buzzed when a new message arrived.
 
-### The Maw
+### The Weatherman Cometh
 (somewhere in washington)
 (they're descended upon by several players in this game)
 Paul knew of a weather station a couple hours away. He told them everything he knew.
@@ -1468,8 +1468,50 @@ The commotion subsided, the three headed outside. To the right of the exit were 
 "Sorry. Please."
 
 "The Weatherman. He's back." And then the man flew out of the doors. He threw his briefcase in a Voltswagon Beetle, and ripped off the lot.
+
+Later in the van. "It's worth mentioning maybe," said Paul, "that the lab was burned down."
+
+"By who," said DQ. But Naram already knew.
+---
+### Back in The Game
+
+Fournier tried to bask and mirror Antoine's fuming rage, but inside he was smiling. "That's just too bad. Crazy how"
+
+### Storm Brewing
+
+Doug looked out from the cockpit in the failing lume, glum. "Don't look so glum!" Oslo shouted. He was putting the finishing touches on The Plan. The Plan involved one ton of dry ice, Diggins Co. patented Tempest Actuators diffused throughout the present five square miles stretching from the airbase. It also involved a rocket launcher and as much Meg-o-gel as the plane could bear. You might be glum too if you were afraid of heights and had to pilot a plane into a budding storm system.
+
+"Listen boss, is there any way you could shoot from the ground because -- "
+
+"Excuse me?" said Oslo, fuming. He tossed the rocket. That was all Doug needed to see. Like a cobra flashing it's fangs just in case you'd forgotten. Doug was still afraid. He was just more afraid of Oslo.
+
+"Nothing. Forget I said anything."
+
+"I will."
+
+Once Oslo had loaded everything, tied a scarf around his neck and donned a Red Baron cap and goggles, the tiny aircraft lifted off with two men in radically different states of mind.
+
+For Doug, he dare not look down; it looked like the end. He could hear the fizz of sparks in the clouds, like shaken soda. Inexperienced as a pilot though he was, he knew this was hardly the time to be flying a plane. It was in moments like these that he questioned his allegiance to the man sitting behind him, in the gunner's seat. No gun anymore though, so Oslo could just sit there and see how it all came out and yell at him if it all went "tit's up". Oslo had taken to the phrase after binging on kitschy, noir crime dramas one week. Every other sentence for the next month was about something or other going "tit's up". A robbery. A souflee. Point being, Oslo Diggins was a difficult man to please and when he wasn't pleased, Doug heard about it. All at once he felt a lot of pity for that Marcus Brutus guy. He could relate. What was stopping him from barrel rolling right then and there, letting Oslo slip out and fall to his death? Oslo hadn't strapped himself in, so what was stopping him? His stomach for one thing.
+
+For Oslo, staring around himself at the frothiness and sucking in the ozone, he was hallucinating off the vapors of the looming triumph a plan perfectly set in motion can bring about. He'd given the tip to one of the more excitable SGMA stations that the Weatherman had returned. Now he was seeding an awful storm. Whoever had The Device, he was going to weed them out. Make them stop the storm. If they didn't...well obviously he had a contingency plan. But then the vapors were getting to be too much because he saw his father's screaming face in one flash of infant lightning, just the way it had looked that day... He was suddenly all too sober. He loaded the rocket-launcher with one of his homemade Meg-o-gel rockets. He stood up. He loosed the the missile into the roiling clouds wherein it burst, though up there with the engine and the roiling, it was hardly louder than a balloon popping far away.
+
+They did this a few more times. The circling. The loosing of a Meg-o-gel rocket. Then the engine started cutting out. "Sir, I think we have ice."
+
+"Well fix it!" shouted Oslo as he loaded another rocket.
+
+The plane went silent. Oslo and Doug, without the engine, heard only the wind and merciless, slushy raindrops pulling kamikazes into metal and flesh. In the bleakness, the meek engine failure light doused the clouds and water in anxious red. "Sir -- " but nothing else came out because when the plane finally fell to earth, Doug was far too preoccupied with screaming.
+
+Oslo stood up in the descending chaos and beat madly at the control panel and the engine with the butt of the rocket launcher. "Work damn, you. Work! Fucker!" he screamed, though it was unintelligible. If they made it through this, when demur, pitiful Doug would gush over how he'd saved them, he would remember to say something both disparaging and drenched in bravado. Currently he couldn't think of anything, but he *would*. Courage couldn't be further from the truth. Oslo, denting the control panel now, was actually reflecting on what a peculiar little life he'd led; just the kind of peculiar little life that might see him pitied by...whoever, and mistakenly tossed through the purportedly pearly gates of Heaven he thought, horrified. Heaven was simply a place he could not go, let alone live there forever. He suspected there might be a ghost there he didn't have the balls to face.
+
+The propeller blades spun. Stopped. Spun again, and then the engine came back. Doug heaved back on the controls with every last iota of willpower he could summon. It was a rough landing. The left wing was ripped clean off when the clipped the hangar. They plunked into the dirt, slid. The propeller chewed away at the earth, ravenous. Needless to say that was the last time the Lady Lydia ever flew.
+
+Doug helped Oslo out onto the ground. The air was choked with a hazy aura of water. The sky barked. "How...it's a miracle. A fucking miracle," said Doug, hands shaken. Oslo shuddered at the word, but he couldn't convince himself otherwise. All that and no broken bones? Hardly a scrape?
+
+"Fuck me," said Oslo. *I just might make it to Heaven yet* he thought.
+
 ---
 
+"May God have mercy on us all." This was a local weatherman from Dorset, Vermont. Typically, as you well know, news organizations are hesitant to take a staunch stance one way other on the whole *God thing*. It's the kind of statement you can get away with in a town with a couple thousand people like Dorset, though. Especially if your total viewership consists of seven people, as did this SGMA weatherman's. What was showing up behind him on the greenscreen did, however, look nefarious.
 
 ### About time
 
@@ -1514,6 +1556,8 @@ Naram laughed.
 
 
 # Appendix
+
+(the storm chasing is an effect of them having to take a stand against the radicals)
 
 (the weatherman, jiddo, was this kind of eco-terrorist, a pioneer in weather mediation technology. He felt the nations of the world could not be trusted and should be brought to heel under the force of the weather.)
 
