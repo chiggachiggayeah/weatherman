@@ -1511,9 +1511,142 @@ Doug helped Oslo out onto the ground. The air was choked with a hazy aura of wat
 
 ---
 
-"May God have mercy on us all." This was a local weatherman from Dorset, Vermont. Typically, as you well know, news organizations are hesitant to take a staunch stance one way other on the whole *God thing*. It's the kind of statement you can get away with in a town with a couple thousand people like Dorset, though. Especially if your total viewership consists of seven people, as did this SGMA weatherman's. What was showing up behind him on the greenscreen did, however, look nefarious.
+"May God have mercy on us all." This was a local weatherman from Dorset, Vermont. Typically, as you well know, news organizations are hesitant to take a staunch stance one way or the other on the whole *God thing*. It's the kind of statement you can get away with in a town with a couple thousand people like Dorset, though. Especially if your total viewership consists of seven people, as did this SGMA weatherman's. What was showing up behind him on the greenscreen did, however, look nefarious. As the weatherman gave his safety recommendations, such as stay away from any and all windows since *there's going to be some* serious *hail by golly!*, he swirled his hand over the furious purple, spiral that had swallowed Dorset.
+
+"We have to do something, right?"
+
+"Seems unwise," said DQ.
+
+"Exactly. I'm gonna head to the van. Anyone know how to get to Dorset."
+
+Jin frowned.
 
 ### About time
+
+"What do you think it all means?" asked Fournier. They were driving to a small town. Antoine was in the car behind them. They'd offered to let him ride with them, but he refused. Glick mosied in the driver's seat, like he was trying to scratch his ass hands-free.
+
+"We haven't really been asked to look into what it all means, have we?"
+
+"But its a..." Fournier had this thing with words. Believed there was a power in them. He couldn't bring himself to say Weather Machine. "Controlling the weather? I -- I don't know. It means something doesn't it? About us?"
+
+"People have been trying to control the weather for millenia. Been trying to kill each other just as long as that. Dividing ourselves just as long as that. If *this* says anything about us it's already been said. We've been saying it from the start."
+
+The night was falling but the darkness in the clouds didn't look right. Fournier thought they looked chemical, somehow. He remembered when he'd felt sick in the fourth grade, in the middle of lunch. His mom had packed grape juice for him. The nurse touched his forehead with the back of her hand, asked if he felt "lightning" in his tummy. He said he did. He was positively burning up and as she was calling his parents, his inevitably-upset-at-having-to-inconvenience-themselves-and-attend-to-perpetually-ill-Ezra parents, he vomited all over. It was purple, with spots of hagard, yellow banana. Another girl walked in and then immediately walked out, horrified. Fournier's parents got divorced a week later. He wasn't sure why he was thinking about that now.
+
+"You know, I read somewhere that none of that's true. Those tribes and their ceremonies, they weren't about trying to control the weather at all. Just preparation. Just trying to prepare the populace for the inevitable. Of course, I guess they did still kill a virgin here and there. To be safe."
+
+Glick chuckled, then as he thought about it and discovered how macabre it all was, he stopped. "Man's not really in the business of smiling and taking it from God or whoever else anymore."
+
+"No. I guess not."
+
+### Introductions
+
+They needed open space. Naram made DQ stop at a McDonald's.
+
+"Do you have an wide open area around here?" he asked. The restaurant was empty. The cashier had his back turned to the dining area, he leaned up against the counter with his elbows. He was chatting up this girl who was busy at the icecream machine, pouring cones for everyone. Naram squinted at her nametag. Bernice. "Excuse me?" he said. They just kept talking.
+
+"I thought they were gonna close honestly. You sure I won't get in trouble for this?" said Bernice, handing a cone to a guy with a beard and burgeoning crow's feet.
+
+"No," said the guy with the crow's feet. "They won't miss this stuff. There's too much of it, trust me. Plus, between you and me, it's not even milk. Never rots." Bernice squished up her nose in disgust. "I know, I know. And yeah, I'm surprised they didn't close. Wasn't planning on coming in today. Too bad Mr. Kroc's a money-grubbing bastard." The scent of burning fries wafted up out from deep in the preparation area and the friers.
+
+"What're you talking about!" This was the guy who was too cool man the cash register. "We hit the fucking jackpot. We don't have to do shit. We can just talk. So Bernice, heard you just had a birthday."
+
+Bernice blushed. She corralled a stray strand of hair behind her ear. "Yeah. How'd you hear about that?"
+
+"I have my sources," said cash register guy.
+
+"Yeah. Eighteen." The would be cashier's priapism was almost audible. "I actually had a pretty crazy night."
+
+"Ooh," said the forty-year-old. "Do tell." Naram couldn't see it but he could tell from the way the forty-year-old glanced up from his icecream cone at Cashier Guy, that Cashier Guy was livid. Everywhere it's the same. The weird, neanderthal, clashing over girls. Even in McDonald's. Even over Bernice.
+
+"Sure, sure. So first we just hung in my friends car and just drank. Not my friend -- who was driving but -- "
+
+"-- Alright," said Naram. "Bernice, I'm just going to have to stop you for a second, because, I've been standing here for five minutes and none of you have even looked at me." Bernice looked up and grabbed at her heart, like he'd sneaked up on her. The forty-year-old dropped his icecream. Cashier Guy leaned back deeper so he could see behind him.
+
+"Oh hey there guy. Didn't see you. Whaddaya need?" said Cashier Guy.
+
+"What's your name?" said Naram. He'd plunged his hands in his pockets, he was waddling, shifting his weight from one foot to the other. His breath felt cold as it hit the back of his throat.
+
+"Oh," for some reason surprised. Cashier Guy, pinched his nametag with both hands, leaned towards Naram over the counter to let him read it. It said Daniel.
+
+"Daniel. Great. Daniel, could you tell me where there's an open space around here." The smell of the burning fries now was oppressive. The alarms must be deceased, becaused the place was starting to smell like it was just a few ticks from going up in flames.
+
+"Hm. The park?" offered Daniel.
+
+"No, that's dumb," said the forty-year-old.
+
+"The airfield!" Bingo. Naram had her write down directions on a napkin. He thought about saying something to Bernice about how Doug was a deadbeat and she shouldn't be anywhere near Doug, but he thought better of it. Besides, he didn't have the time. He did say something as he left though.
+
+"You might wanna check on those fries!"
+---
+
+Hail the size of golf-balls. It was bad enough that before they went to the airfield, they made a slight detour to the local Sports Emporium, to pick up a few bicycle helmets.
+
+DQ parked in the middle of the airfield. They unloaded the machine. Filled it up with meg-o-gel.
+
+(they get attacked by Doug and Oslo, mostly Oslo. It devolves into this weird shouting match with Doug and Oslo and third Party, Them, they come and break it all up)
+
+(I'd like to have this moment where Glick)
+
+DQ and Jin made last minute adjustments to the machine, checking valve connections, tightening screws. Naram made sure it was giving the readings he expected. Voltages. A near-neutral PH sloshing around in the machines intestines. Paul was trying not to get hit by the icy meteorites, dismayed by the divots they were leaving in the ground. Paul heard a sound behind him and to the right. A smattering of syncopated thuds, just off the beat dictated by the rest of the frozen projectile percussion section. Seconds later, when the world stopped spinning, Paul was on his back, with a hulking hand around his throat.
+
+"Good evening," said yet another voice. The others stopped tinkering. The man who'd given the greeting walked out of the shadow of the modest, rapidly denting hangar. He was beneath an umbrella that must've been made of at least Kevlar. It was difficult to see his face from the shadow it cast. All they could make out in the gasps of light, was the ascot tied about his neck. "To skip the boring bits like who am I, who is this Modern Prometheus -- " nodding in the direction of the man pinning Paul -- "I'll just say give me the machine or we'll snap your friend's neck."
+
+"I said not to bring him. Didn't I say not to bring him?" whispered Jin.
+
+"You're not moving," said Ascot.
+
+Naram cleared his throat. His Adam's apple felt like it'd grown a few sizes too large and it hurt to swallow. "Sorry. Um...DQ?"
+
+"What?" she said.
+
+*Push the button*, mouthed Naram. She was in the shadow of the van and her hand was already closest to the button. She had the best chance of pushing it before anyone could call funny business.
+
+*What about the goggles?* she mouthed back.
+
+"Um, guys?" said Paul.
+
+"I concur. Guys? What's going on in there?" said Oslo.
+
+*Fuck the goggles*, mouthed Naram.
+
+"Fine. Since you aren't hurrying. I'll count. Five. Four. Three."
+
+Maybe the last injection of Meg-o-gel had been stale. Whatever the case, the force tossed DQ into the front seat, and threw Jin clear of the van. Naram tumbled backwards on his back. Paul and his assailant were sprawled on their stomachs in the dirt. The man with the umbrella was also unconscious. The slowing winds were still strong enough to drag away his absurd umbrella. On his hands and knees, Naram crawled over.
+
+The man was less than a decade older than Naram. Immaculately groomed. Naram even suspected he was wearing a small amount of flesh-toned makeup. The ascot flitted in the wind, and it's silver strands, sparkled in the gleam from the machine. There were words embroidered into the fabric. A name.
+
+No sooner was Naram saying the name of Oslo Diggins than an apparition appeared less than a meter away. A shadow of a man leering down at him. Some fragment of unconscious intuition made him think it was his grandfather. Naram was asking a question when a small hunk of ice smashed him across the head, throwing the kaleidoscopic night into a swirl, a muddy oil painting that grew blurrier with every splinter of time that passed. And then blackness.
+
+Light. Sweat, he was sticking to the seat. He was on a dirt road, trees to one side and an expanse of green on the other. Something smashed the hood. He looked out the windshield and there was a woman standing behind a pickup with someone in the driver's seat. A device reminiscent of a turret was bolted to the bed. She was smoking. She adjusted her sunglasses. There was an ethereal quality to her. Naram guessed it was partly the remnants of meg-o vapors pulsing through him and the lingering effects of whatever it was that the machine and those lights did to people. Sunlight hit the roof and bounced back in her face. She was glowing. Then panic clutched his heart.
+
+He turned around and checked for the machine. It was still there.
+
+"Still there," she said, her voice gravelly and joyless. "Did you think about checking if your friends were alright?" Naram looked to his right. Jin was still conked out but she was breathing. In back, DQ and Paul were lying down but breathing also. DQ was emitting a cataract of drool which her sweatshirt was sopping up in a pooling dark spot. "Didn't think so," she said like she'd made a wager on it. She put out her cigarette.
+
+"Who are you?" he said.
+
+"I think you know I'm not going to tell you that."
+
+"Who's the Weatherman?"
+
+"Oh c'mon," she said with a half-smile. "Not yet."
+
+"Why didn't you take the machine?"
+
+"Because that wouldn't tell us anything."
+
+"About what?"
+
+"About you."
+
+"Don't sell yourself short. Soon you'll be all anyone's talking about." She pointed to a newspaper on the dashboard. Naram picked it up. The Daily Dorset. Triumphant and stretched on the front page was a blurry picture of the van taken from a distance. It was hard to see anything but Naram's silhouette peering into fantasic light pouring out of the back of the van like it was a portal to the horrific, splendor of the underworld. The headline was *Modern Witchdoctor: Man and Strange Machine Stop Dorset's Doom*. Tires clawed at the dirt. Naram threw down the paper to see the woman and the truck speeding off.
+
+He started the van and raced after them. The van gained. He could see the woman smiling in the bed of the truck. She stood and positioned herself behind the turret. She leaned back and aimed upwards. She fired. A beam of split light roared into the clouds, along with a capsule that burst high above them in a modest cough of violet smoke. It didn't seem to have an effect. And then the sky began to rumble. A sudden mist swam along the tips of the blades of grass and mingled with their tires' kicked-up dirt. She waved as fog rolled in and swallowed her and the truck and everything else. Naram couldn't even see the road.
+
+He stopped.
+
+The low wheeze of the pickup's engine weakened and weakened and then there was nothing. Just the wind wading through far away, invisible trees.
 
 
 ### A.B.G. (Always be glowering)
