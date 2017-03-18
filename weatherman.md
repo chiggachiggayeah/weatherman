@@ -1549,7 +1549,7 @@ They needed open space. Naram made DQ stop at a McDonald's.
 
 "No," said the guy with the crow's feet. "They won't miss this stuff. There's too much of it, trust me. Plus, between you and me, it's not even milk. Never rots." Bernice squished up her nose in disgust. "I know, I know. And yeah, I'm surprised they didn't close. Wasn't planning on coming in today. Too bad Mr. Kroc's a money-grubbing bastard." The scent of burning fries wafted up out from deep in the preparation area and the friers.
 
-"What're you talking about!" This was the guy who was too cool man the cash register. "We hit the fucking jackpot. We don't have to do shit. We can just talk. So Bernice, heard you just had a birthday."
+"What're you talking about!" This was the guy who was too cool to man the cash register. "We hit the fucking jackpot. We don't have to do shit. We can just talk. So Bernice, heard you just had a birthday."
 
 Bernice blushed. She corralled a stray strand of hair behind her ear. "Yeah. How'd you hear about that?"
 
@@ -1648,6 +1648,77 @@ He stopped.
 
 The low wheeze of the pickup's engine weakened and weakened and then there was nothing. Just the wind wading through far away, invisible trees.
 
+### The Dark Side of Meteorology
+
+Oslo jolted awake. Cold sweat coated his arms and legs and his shirt clung to him. It was like he'd been dipped. He looked around. Wires innervated the space, running every which way across the floor, linking outlets and screens and dead cameras. His hands were taped to to the arm rests on a swivel chair and before him was a large desk he could tell was chintzy just from the look of it. Plywood painted to look like oak. He was on a set for some news program.
+
+In the dream he'd been there on the airfield, seconds away from justifying everything he'd ever done, basically opening up The History Books and writing his name. Then the light and agony throwing a riot in his cranium, trying to break out. He'd died, he was sure of it. Dying wasn't the bad part. The bad part was what was waiting for him on the other side. He'd woken up before he saw anything, but the idea was enough to terrify him so much he swore his heart would burst.
+
+The lights came on.
+
+Out from behind one of the cameras marched a young, confident man. He was smiling as he came over. He paused at the desk, smiled some more adjusted his glasses.
+
+"Oh get on with it," said Oslo. He could already tell he didn't like this kid.
+
+"What would you do if you had the machine?" Oslo looked at his hands, taped as they were to the chair, and thought.
+
+"Sell it."
+
+The young man scoffed. "How trite."
+
+"Nothing 'trite' about the quotes I've gotten." Oslo was already rich, but this was private island money. The kind of money that makes people strange and twists them up so they lose touch with reality, behave like the rules don't apply to them. And of course, the rules don't apply. Get rich enough and even death becomes negotiable. That's the first thing Oslo was going to buy: his spot in a freezer for human popsicles. This kid could laugh at him now, but in a hundred years? This kid would be dust and Oslo would be laughing.
+
+"This is bigger than that. We can save the rule. We can rule the world. Finally bring peace. Bring the government's of the world to heel."
+
+"That's enough Dexter." A woman stood in the doorway leading out into a sickly, florescent hall with five others. Two of them were dressed in suits with their hair slicked back like they'd just gotten off of actual news programs elsewhere. The woman was wearing a cardigan and a floral skirt and she had on thick cat-eyed glasses. Oslo could almost smell her tiny menagerie of felines breezing into the room on a convective air current. Aside from the two men who in suits there was a third suit. He was wearing his differently from the other two, his suit lacking any atom of professionalism. The lapels flared wide and his undershirt was unbuttoned all the way down to the pendant -- a crown -- hanging from a gold necklace so brittle it might break any second. Oslo just knew his name was Vinny. *It had to be.* The last guy had just touched down after a long vacation, from the looks of it. His shirt was all pineapples, palm trees, and coconuts with a toucan or parrot thrown in here and there for good measure.
+
+"He's so overzealous," continued the woman in the cardigan, the cat-smell becoming actually oppressive, hurting Oslo's nose. "Evelyn," she said, walking over and extending her hand. Initially she was insulted and confused that Oslo wouldn't at least shake her hand and keep things cordial, when she was being so cordial -- her involvement with his capture notwithstanding. Oslo nodded to his hands, wrapped in mounds of duct tape, up against the arm rests. Her eyes rolled as she was about to say something she'd probably said a hundred times before. "Cheese and rice Dexter! This isn't *CSI*, or something. He's not a hostage! He's a friend!"
+
+The guy in the pineapple shirt walked up behind the kid and smacked the back of his head. "I'm *so* sorry," said the man. "Name's Herald. Dex here is my boy. He's a knucklehead sometimes."
+
+"Shiiiiiit!" said "Vinny". He skated over, all exaggerated movements, and affectations. If Oslo had to bet "Vinny" had grown up in a quaint suburb in the midwest, was beat up a lot growing up, and didn't have many friends. As a result "Vinny" found solace in movies. Gangster movies. "Vinny", he was guessing, had seen the *Godfather* at least fifty times. He was too much of a charicature. It was the only way. Oslo bet "Vinny" wasn't even Italian. Even a slightly. His hair was black but it was obviously dyed. "Vinny" tussled Dexter's hair and grabbed him around the shoulders. "Kid's just excited," that's all. "Nothing wrong with a little enthusiasm, huh?" Herald cringed.
+
+"Shut up Kevin," said Harold. Oslo made a mental to still call him Vinny. Vinny relinquished Dexter and simpered over near Evelyn.
+
+"Well?" said Evelyn, gesturing to Oslo's restraints. Dexter began to walk over, but Vinny stopped him.
+
+"I got it kid," he said. He took out a switch blade and tried to do that dizzying unsheathing of the blade that anyone in the movies bothering to carry a switchblade can do. It was almost impressive. It was flawless until the end when the mechanisms of the knife stuck so Vinny, frowning, flicked the blade, willed it to cooperate. He cut himself. Bad. *I cut my hand, good god it hurts. My hand!* He kept screaming as he dropped to his knees slowly, like he was deflating.
+
+Evelyn couldn't be bothered. She fixed Harold with a *will you do something* gaze, and motioned to the two suits to help out. Dexter scuttled to the chair and sliced through Oslo's tape fetters with four snips of his scissors.
+
+Blood rushed back into Oslo's hands. Evelyn reached out again and this time Oslo shook his hand.
+
+"Now I don't know what Dexter was saying before," she started, glaring at Dexter, "but our group just wants to obtain the machine. Multiple minds are better than one and all that. I think we all agree that we can't leave the machine in the hands of some...terrorist punk."
+
+"Terrorist?" asked Oslo.
+
+"You did *see* him, didn't you?"
+
+Oslo nodded. Suddenly Evelyn's smell, punching him in the nose even now, wasn't his least favorite feature of hers.
+
+"As Americans we can't just sit around and let one of Them have the machine."
+
+"What happens after we get the machine?"
+
+"The specifics we can discuss later."
+
+Oslo thought about it for a second. In more normal times, he was a lone wolf. The roadkill in his room flashed to mind.
+
+"I'll do it."
+
+"Great," said Evelyn, getting up, and only now looking to see if Vinny hadn't bled out entirely. She looked disappointed when she saw him staring up at from the floor, bandaged and swaying from lack of blood.
+
+"One thing," said Oslo.
+
+"Hm?"
+
+"Where's Doug?"
+
+### Leads
+
+(fournier and glick got jumped by the dark side of the meteorlogists, but didn't come away with nothing. Somehow they figured out who Oslo is. Maybe the ascot was left.)
+
+Glick and Fournier and Antoine were at the airfield. The last stragglers of the press were vaporizing, dragged back to the grind of news in a small town, more painful since this serendipitous break from talking about bake sales, or
 
 ### A.B.G. (Always be glowering)
 In which we jump back to Doug, contemplating what to do with the phone now that Idris got away, maybe not quite where he decides to turn the tables
