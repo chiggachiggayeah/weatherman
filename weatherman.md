@@ -1706,7 +1706,7 @@ Oslo thought about it for a second. In more normal times, he was a lone wolf. Th
 
 "I'll do it."
 
-"Great," said Evelyn, getting up, and only now looking to see if Vinny hadn't bled out entirely. She looked disappointed when she saw him staring up at from the floor, bandaged and swaying from lack of blood.
+"Great," said Evelyn, getting up, and only now looking to see if Vinny hadn't bled out entirely. She looked disappointed when she saw him staring up at her from the floor, bandaged and swaying from lack of blood.
 
 "One thing," said Oslo.
 
@@ -1715,10 +1715,101 @@ Oslo thought about it for a second. In more normal times, he was a lone wolf. Th
 "Where's Doug?"
 
 ### Leads
+(they discover the ascot, f and g)
+(they try to piece more things together as this conflict between the two sides is brewing)
 
-(fournier and glick got jumped by the dark side of the meteorlogists, but didn't come away with nothing. Somehow they figured out who Oslo is. Maybe the ascot was left.)
+### Rock and a Hard Place
+(eventuall fournier and glick do get captured, as they get captured by the dark meteorology group. And there's tension because they know a lot at that point maybe? Something that'll certainly help the dm's get one over on naram and the gang)
 
-Glick and Fournier and Antoine were at the airfield. The last stragglers of the press were vaporizing, dragged back to the grind of news in a small town, more painful since this serendipitous break from talking about bake sales, or
+### Chaotic Systems
+
+(Evelyn somehow helps turn the tide against Naram, appearing on a show and saying that we can't know the effects of the weather machine and maybe he's causing extreme weather. And she tries to blame the tornadoes on Naram...?)
+
+### Storm Chasing
+
+(something about storm chasing to stop these tornadoes)
+
+(they meet a captain fantastic like family, a dad, his daughter, and his son)
+
+(and it turns that this isn't just a random thing, the dad gives them another clue or hint at what happened, how to find the weatherman)
+
+###
+
+There's a big problem with the urgency of the story here. Why now, things aren't marching...it doesn't feel like Naram's solving of the mystery of who did what and what's going on actually solves anything. Facts: He's got a weather machine. People are trying to kill him and his friends for. The reasons for that are grokable without any understand of the Project Witchdoctor conspiracy. Getting all the details of what went down needs to be more of a driver. Naram's gotta have some reason to believe that it's imperative he solve this mystery.
+
+I think revisionist history is a big theme here also. Naram's grandfather and father will inevitably have different takes on what transpired years ago.
+
+I think it would make sense if naram had a bit of an ego, wanting to claim this thing for himself, wanting to be one of these great people. And he feels this is his time, somewhat at the expense of everyone else. I don't think he is this lackadaisacal failure, or letdown. I think he's maybe a bit type-A in a way that's kind of self-destructive.
+
+Why solve the mystery though? What does Naram stand to gain? Is there still something he doesn't understand about the machine, maybe the machine was intended to have greater impact, maybe he desires to understand how to control the device better to prevent side effects. And maybe initially that's not the goal maybe it *becomes* the goal since the Weatherman would be the only one that could relate on this scale the only one who could guide him? Help him save the world? I guess he's thinking The Weatherman has some last bit of knowledge that could help him become the savior, but ultimately the device jiddo gives is something about humanity and about the myth of the legendary man, and how maybe there doesn't exist a solution, some solve, some magic
+
+### Mad Science
+(i think the rest of the team has bailed a this point)
+Naram kept playing the words over and over in his head. *You are the problem*. The faces in those crowds blended together in a livid amalgam screaming *Traitor* and demanding he be tossed into a dark hole off the face of the planet. They'd rather that than the machine. They'd rather that than his trying to help. Hard to blame them. Things had only gotten worse.
+
+Then there was Jin. That look. Not anger. Something more like bewilderment, a look he'd seen on the faces of tangled, crumbling minds, battling dementia in nursing homes. Unrecognition.
+
+Now he was on the run. Hadn't showered in a week. Hadn't shaved in months. The van was near out of gas, and there was no gas station in sight. The door hung open. Naram was on his back staring out at a world more like the one in his head, where everything had unraveled and spun upside down. He let the blood rush to his head. The sugary, tepid breeze lapped at his nose. Tenebrific clouds and sky whirled above, looking every bit like the end of the world. Naram didn't care. He closed his eyes and slept.
+
+A mumbling engine ripped him from his nap. It was the engine of a Volkswagen Bus and in simplistic black on the side was written *The Stormchasers Kinder*. The double doors in back shot open. Out stepped a little girl sporting a full-body coating of dirt and a Royals baseball cap. She eyed Naram for a blink, then took the curious contraption she was holding, and pointed it at the sky. A spinning receiver beeped anxiously on top of the curiosity.
+
+"What's it show Jack?" called a man from inside.
+
+"We're screwed, that's what."
+
+A bespectacled man's head jutted out passed the edge of the door, dragging a preposterously long salt and pepper beard in its wake. "What did I say about the language young lady?"
+
+"Sorry," said the little girl. The man adjusted his glasses and smiled at her. He glanced at Naram.
+
+"Ah! So you're alive!" Naram turned over. "Glad that's the case. As you can see," he said, wagging his beard somewhat in the direction of the sky, "we're in quite a pickle. Could really use that gizmo of yours." Naram then noticed that in fine print on the side of the van, in practically microscopic hand, was *SGMA Certified*.
+
+"From what I've found, you're better off with me just sitting it out. Come what may. I might kill one twister. But then five more could pop up. It's unpredictable. Chaos. Hydra."
+
+"You know, I was there."
+
+Naram felt a spark at the base of his spine -- not quite as deadened as he thought. It raced frantically up vertebrae, hit his brain, and burst in a scintillating jubilee. He'd given up.
+
+"The lab?" asked Naram.
+
+"Yeah I was. I knew the Weatherman." Naram's jaw all but fell off. "And we shared a mentor. A pioneer. He figured out that you could use table salt to seed clouds, change the weather. So he did it. Nothing happened. But two towns over? He started a snowstorm." Ernst Kinder chuckled, it sounded cavernous, resonated in his chest. "We had this joke. If I stop a tornado in Kansas, what happens in Kuwait?" Naram's face was blank. "Who the hell knows, is the answer. We're in the business of chaos. We can't know the consequences, but if we have the means, shouldn't we try."
+
+"I'm not so sure. It's entirely possible we end up making everything worse."
+
+"You really believe that you're causing all this? You think that you're the reason the weather has suddenly up and jumped off a cliff?"
+
+"I'd like to think otherwise. I would. But...what else could it be."
+
+"I just told you! This game's older than you boy. And there are a lot of people that what that machine out of your hands. You might have the best machine but there are others. I even had for a while."
+
+"?"
+
+"A jet engine. More or less. Worked too."
+
+"It *kind of* worked," said Jack, shooting a mischievous look at her father from underneath the bill of her hat.
+
+"Oh you don't remember. It wasn't *perfect*" admitted Ernst. "It really had one flaw. You'd start tornadoes just as much as you killed 'em."
+
+(this feels like pointless digression about how, in a large sense, weather modification is pointless)
+---
+
+The tornado slithered down out of the heaving ether, and clawed at the earth with its malevolent tendril. Naram felt an infantile terror rattle his bones. He distinctly recalled the same sinking sensation when as a kid, he'd gotten separated from his parents and had to contend with being utterly alone. Ernst and Jack were still in the back, but the point was that they couldn't save him. There was nowhere to run. A tornado, it occurred to Naram, is a helpful reminder of how little the forces of nature care for human beings. Maybe a tornado is a kind of revenge.
+
+Ernst drove. The setup was not unlike a tank. Through a hole in the roof, one could manage to stand and shoot something into the twirling tumult. Naram was going to shoot.
+
+"Now kid, when you stick your head out there, don't go all chicken shit on me, alright? We're not exactly safe but we're safe enough. Just aim and fire. You've shot a gun before right?"
+
+"No. Is that going to be a problem?"
+
+"I'd say yes if I didn't think that was going to make you more nervous."
+
+Jack guffawed and loaded the anti-tornado ammunition into the refurbished anti-aircraft gun. She nodded at Naram and he nodded back, then she began cranking away at the wheel that operated the gun's pulley system. Slowly, the gun, platform, and by extension Naram rose through the hole in the ceiling.
+
+Before the ravenous column of wind and fury -- even with the turret -- Naram felt outmatched. He was cold. His limbs shook for the cold and the incredible din, which he feared might bring him to shatter if it hit just the right pitch. He wondered back in some paranoid part of his brain if the gun was even loaded. He traced the possibility that he was being offered up to the nameless God he'd so clearly angered. A different segment of his brain twitched his fingers and fired the turret. Purple pellets sped from the barrels and popped just as they were enveloped in the twister.
+
+Naram did this for five minutes, every second the cycling monstrosity coming nearer and growing louder. And then, the storm began to subside. Ernst jettisoned from the road as fast as the bus would go, but Naram could tell it was over. The winds whipped a bit more slowly, and the howls tapered. And all at once the tornado was no more, just a memory, though behind lay a vast stretch of warped landscape.
+
+
+
 
 ### A.B.G. (Always be glowering)
 In which we jump back to Doug, contemplating what to do with the phone now that Idris got away, maybe not quite where he decides to turn the tables
@@ -1762,8 +1853,6 @@ Naram laughed.
 # Appendix
 
 (the storm chasing is an effect of them having to take a stand against the radicals)
-
-(the weatherman, jiddo, was this kind of eco-terrorist, a pioneer in weather mediation technology. He felt the nations of the world could not be trusted and should be brought to heel under the force of the weather.)
 
 (grand belief of jiddo's how countries and all these artificial divides are meaningless)
 
