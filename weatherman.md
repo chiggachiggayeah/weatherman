@@ -1745,6 +1745,8 @@ Why solve the mystery though? What does Naram stand to gain? Is there still some
 
 ### Mad Science
 (i think the rest of the team has bailed a this point)
+(this isn't happening in the midwest, Tornado Alley, this is happening near new york, the east coast)
+
 Naram kept playing the words over and over in his head. *You are the problem*. The faces in those crowds blended together in a livid amalgam screaming *Traitor* and demanding he be tossed into a dark hole off the face of the planet. They'd rather that than the machine. They'd rather that than his trying to help. Hard to blame them. Things had only gotten worse.
 
 Then there was Jin. That look. Not anger. Something more like bewilderment, a look he'd seen on the faces of tangled, crumbling minds, battling dementia in nursing homes. Unrecognition.
@@ -1771,7 +1773,7 @@ Naram felt a spark at the base of his spine -- not quite as deadened as he thoug
 
 "The lab?" asked Naram.
 
-"Yeah I was. I knew the Weatherman." Naram's jaw all but fell off. "And we shared a mentor. A pioneer. He figured out that you could use table salt to seed clouds, change the weather. So he did it. Nothing happened. But two towns over? He started a snowstorm." Ernst Kinder chuckled, it sounded cavernous, resonated in his chest. "We had this joke. If I stop a tornado in Kansas, what happens in Kuwait?" Naram's face was blank. "Who the hell knows, is the answer. We're in the business of chaos. We can't know the consequences, but if we have the means, shouldn't we try."
+"Yeah I was. I knew the Weatherman." Naram's jaw all but fell off. "And we shared a mentor. A pioneer. He figured out that you could use table salt to seed clouds, change the weather. So he did it. Nothing happened. But two towns over? He started a snowstorm. Buried them." Ernst Kinder chuckled, it sounded cavernous, resonated in his chest. "We had this joke. If I stop a tornado in Kansas, what happens in Kuwait?" Naram's face was blank. "Who the hell knows, is the answer. We're in the business of chaos. We can't know the consequences, but if we have the means, shouldn't we try."
 
 "I'm not so sure. It's entirely possible we end up making everything worse."
 
@@ -1779,7 +1781,7 @@ Naram felt a spark at the base of his spine -- not quite as deadened as he thoug
 
 "I'd like to think otherwise. I would. But...what else could it be."
 
-"I just told you! This game's older than you boy. And there are a lot of people that what that machine out of your hands. You might have the best machine but there are others. I even had for a while."
+"I just told you! This game's older than you boy. And there are a lot of people that what that machine out of your hands. You might have the best machine but there are others. I even had one for a while."
 
 "?"
 
@@ -1787,7 +1789,7 @@ Naram felt a spark at the base of his spine -- not quite as deadened as he thoug
 
 "It *kind of* worked," said Jack, shooting a mischievous look at her father from underneath the bill of her hat.
 
-"Oh you don't remember. It wasn't *perfect*" admitted Ernst. "It really had one flaw. You'd start tornadoes just as much as you killed 'em."
+"Oh you don't remember. It wasn't *perfect*" admitted Ernst. "It really had one flaw. You'd start tornadoes just as much as you killed 'em. But that joke? The real point is that a butterfly flapping its wings a foot from where we stand might cause a hurricane in the Carribean. You can prove that."
 
 (this feels like pointless digression about how, in a large sense, weather modification is pointless)
 ---
@@ -1808,8 +1810,75 @@ Before the ravenous column of wind and fury -- even with the turret -- Naram fel
 
 Naram did this for five minutes, every second the cycling monstrosity coming nearer and growing louder. And then, the storm began to subside. Ernst jettisoned from the road as fast as the bus would go, but Naram could tell it was over. The winds whipped a bit more slowly, and the howls tapered. And all at once the tornado was no more, just a memory, though behind lay a vast stretch of warped landscape.
 
+### The Meeting
 
+(he should get here through some effort of his own. And it has to be more than just discovering who the weatherman is)
 
+(this doesn't feel right. like, idk, it seems like just a meeting would be anticlimactic, even though this is the middle, it seems like something has to happen)
+
+(and then, if this is the middle, what's the end)
+
+(I don't think the machine works fully)
+
+### At long last
+
+Naram-Sin Nazari held the door open for Jin his -- he wasn't sure. She'd never said. He took in the smiling, rosying faces, waiters and trays of drinks and hors d'oevres slipping by in an intricate tango. Already people were noticing he'd arrived. Distant smiles and curious, mouth-agape heads. Severed conversations in favor of a brief meet and greet with the man of the hour.
+
+"I hate these things," said Naram, though Jin could tell that it was only half-genuine. He looked down at her. She flared her nostrils.
+
+"Mr. Nazari," said a balding man with a white combover, and an old-fashioned, professor cliche tweed jacket. Here was a man who never could have been anything other than an academic. Before that night Naram had never seen the man, he was sure of it. Wouldn't have been easy to forget a mustache like that, one of those curled with copious wax that villains in cartoons used to wear. He looked like he was a snap of his chubby fingers from whisking Jin away and tying her to train tracks somewhere. Naram looked down for Jin, but she was already gone.
+
+This was an after-party for The Meteorology and Natural Sciences Colloquium, held every year in Cambridge, MA. The eminent and most promising meteorologists and scientists, such as they were, would give talks about their research and maybe even demonstrations. Naram's talk, since he was considered a promising meteorologist as a Natural Sciences PhD at MIT, was entitled: "Photo-induced Cloud Seeding". The audience gathered found this to be the most riveting talk of the entire conference. Naram had made the jump from promising, relative unknown to famous, amongst those interested in such topics, over the course of fifteen minutes and thirty slides.
+
+By the time Naram had extricated himself from the throng of academically aroused admirers, Jin was three glasses of champagne deep with another in hand, with Dr. Goldstein, Naram's advisor, whispering to her, his lips nearly brushing up against her ear. Goldstein stared Naram down as he approached, whispering the entire time.
+
+"We were just talking about you," said Goldstein, finishing off the last of whatever was in his tumbler. He grabbed a shrimp cocktail from a passing waiter's tray, almost sending the whole tray crashing into the carpet. He slurped one of the shrimp up, too far gone to bother with removing the tail. He winced as he attempted to chew through it.
+
+"Oh you were?" said Naram, scowling and then looking at Jin. She rolled her eyes.
+
+"Yes we were. I was just telling your girlfriend that fame in academia is a fickle thing. Intriguing research papers are a dime a dozen. As are the fresh-faced, smooth-assed greenhorns who write them. The real mark -- real staying power is in being able to do it over the course of an entire career. And maybe even to produce something more than just a paper. I've done it. I've got staying power. You...who knows?"
+
+"Yes who knows?"
+
+Goldstein swallowed the shrimp he'd been working on with a grimace. He wobbled away.
+
+"Girlfriend?" asked Jin.
+
+"*That's* what you're going to comment on? Not, I don't know, maybe how my advisor, one of your professors was just an immense asshole to me and -- oh hey -- how long have you been sitting over here just letting him shit talk me like that?"
+
+"Maybe some shit talk is good. Might keep that massive ego in check."
+
+"Seriously? I'm here because I *have* to be."
+
+Jin finished off her champagne, pointed to the bar. Two young women were smiling in their direction, and when Naram turned they waved demurly. "I'm sure it has nothing to do with the fact that you've suddenly got fucking groupies, or anything. I'm sure it's *so hard* for you to be here. Really taking one for the team."
+
+"...wait. Are you *jealous*?"
+
+Jin's head tilted back, an acerbic smile bubbling on her lips. "Jesus Christ Naram. Uh, so I'm leaving now but before I forget: here." She slapped a small envelope into his chest. "Don't call. Or text." Her heels knifed into the carpet as she walked away.
+
+Naram tore open the letter: *Mr. Nazari, you may have everyone else fooled, but I know the truth. Pretty brazen of you to think that -- somehow -- I wouldn't recognize my own work. Maybe you thought I'd be too busy or disinterested to care. Maybe you thought I was dead. For your sake, I'll assume the latter. I'd issue warnings if I thought that'd chasten you. I don't. In a way, I'm impressed you've even gotten this far. I will only say: tread carefully. Brilliant as you think you are, there's much you don't know. - The Weatherman*
+
+Naram's gaze darted into the crowd, searching for a telling flash in the crowd, a knowing face. There was nothing.
+
+Naram decided to head back to the apartment.
+
+---
+
+Nothing exploded. The thought had been scratching the paranoid, reptilian sectors of his brain the whole way back. *They probably rigged the apartment. I'm going to open the door and BAM, there goes the third floor and my newly promising career*. In fact the apartment was not rigged. It was just as he'd left it. Ifrit slunk up to him, stretched, and nuzzled into his ankles. He picked up the little cat, and petted her absent-mindedly. His phone buzzed. He set the cat down, reached into his pocket, hoping it was Jin. It wasn't. It was Paul.
+
+Paul was a guy Naram had met two weeks earlier on the internet, in a chat for weather enthusiasts. Normally Naram avoided such things, but he was desperate.
+
+It all started one day in Goldstein's office. Naram had been asked at the last second to oversee Goldstein's office hours since Goldstein had prior engagements that'd entirely slipped his mind. Naram, even then, assumed that Goldstein was just fucking with him, trying to eat up as much of Naram's time as he could in a misguided attempt to derail his research. Goldstein had left his office in a discombobulated state, Naram assumed, out of spite. There were books and papers scattered everywhere, and the air was choked with chalk dust. As Naram was organizing the papers, he came across a notice saying that Goldstein's application for membership in the SGMA had been rescinded.
+
+Naram had never heard of the SGMA, but now, he very badly wanted to figure out what it was and to get in. Goldstein might then be so overcome with vitriol and anger that he'd rather not deal with Naram's presence than force him to man office hours. So went Naram's thinking.
+
+The thing was, he couldn't find anything on the SGMA. It was only when he had nowhere else to turn that he signed up for an account on the enthusiast chat. The chat was known for pedantic, grating conversation about the science of the weather, a place where asking if it was going to rain could result in the most incendiary of flame wars. Naram logged on at a time when the chat saw peak traffic and asked what exactly the SGMA was. In a trickle, user's signed off, and then this turned into a deluge and then there were no more than five people in the chat including Naram. One of them was Paul. Paul said he knew. But he wasn't sure he could Naram.
+
+The days that followed were dominated by this coquettish dialogue between Naram and Paul. Paul would reveal a small bit of information, but nothing more.
+
+The text: *Listen. I could lose my membership for this but you seem like the real deal. There's a guy you can meet. He'll fill you in.*
+
+(Big thing, how are the SGMA and the weatherman connected? Oslo's going to call and scare Naram out into the open, but now it has to be utterly urgent and possible for Naram to get information he needs to move forward with the machine. I have to figure out a way to give more context about the world.)
 
 ### A.B.G. (Always be glowering)
 In which we jump back to Doug, contemplating what to do with the phone now that Idris got away, maybe not quite where he decides to turn the tables
