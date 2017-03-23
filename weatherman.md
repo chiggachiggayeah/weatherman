@@ -919,7 +919,7 @@ The man's face remained unchanged. "Yeah, I know Idris. But *who* are *you*?" Th
 
 "Jin Chen"
 
-"Great," said the man, nodding. He closed the door. Through the window, the girls and Naram watched as the man dug through a pile of papers on cabinet next to the tv. Then finally he pulled one out and whatever he found on it seemed to be satisfactory, as he nodded at it for a good thirty seconds. He returned to the door opened it. "Just to double check. You're Naram-Sin Nazari?"
+"Great," said the man, nodding. He closed the door. Through the window, the girls and Naram watched as the man dug through a pile of papers on a cabinet next to the tv. Then finally he pulled one out and whatever he found on it seemed to be satisfactory, as he nodded at it for a good thirty seconds. He returned to the door, opened it. "Just to double check. You're Naram-Sin Nazari?"
 
 "Yeah," confirmed Naram.
 
@@ -1084,7 +1084,7 @@ DQ grabbed the paper. "Which is?"
 
 "Parking lot. I think it's wherever this news station is?"
 
---- the code sheet, which looks like some combination of a hastily scribbled treasure map and an arcane spell, the messing up of which might see you turn yourself into a chicken. But on the code sheet there is a clear notice. A phone number to be contacted only in the gravest of situations. A grave situation was not one in which a broadcast seemed like a random jumble of letters. Decipherable only with the most extreme care. The most likely reason for the intelligibility of the deciphered message was a specific kind of your own incompetence, said the letter. Only SGMA Union certified broadcasts, transmitted by SGMA Union members would contain any sort of message. You were instructed as a member to get into contact with one ASAP in the event of a move (probably sudden), or some other hasty dislocation. You were welcome to call the number for the nearest SGMA broadcast station. If you had somehow obtained this sheet of paper and were not an SGMA Union member, you were asked politely but firmly, to discard the sheet immediately and disregard everything inside.
+--- the code sheet, which looks like some combination of a hastily scribbled treasure map and an arcane spell, the messing up of which might see you turn yourself into a chicken. But on the code sheet there is a clear notice. A phone number to be contacted only in the gravest of situations. A grave situation was not one in which a broadcast seemed like a random jumble of letters. Decipherable only with the most extreme care. The most likely reason for the unintelligibility of the deciphered message was a specific kind of your own incompetence, said the letter. Only SGMA Union certified broadcasts, transmitted by SGMA Union members would contain any sort of message. You were instructed as a member to get into contact with one ASAP in the event of a move (probably sudden), or some other hasty dislocation. You were welcome to call the number for the nearest SGMA broadcast station. If you had somehow obtained this sheet of paper and were not an SGMA Union member, you were asked politely but firmly, to discard the sheet immediately and disregard everything inside.
 
 SGMA stood for Supranational Gaggle of Meteorological Adaptationists.
 
@@ -1531,7 +1531,7 @@ Jin frowned.
 
 "People have been trying to control the weather for millenia. Been trying to kill each other just as long as that. Dividing ourselves just as long as that. If *this* says anything about us it's already been said. We've been saying it from the start."
 
-The night was falling but the darkness in the clouds didn't look right. Fournier thought they looked chemical, somehow. He remembered when he'd felt sick in the fourth grade, in the middle of lunch. His mom had packed grape juice for him. The nurse touched his forehead with the back of her hand, asked if he felt "lightning" in his tummy. He said he did. He was positively burning up and as she was calling his parents, his inevitably-upset-at-having-to-inconvenience-themselves-and-attend-to-perpetually-ill-Ezra parents, he vomited all over. It was purple, with spots of hagard, yellow banana. Another girl walked in and then immediately walked out, horrified. Fournier's parents got divorced a week later. He wasn't sure why he was thinking about that now.
+The night was falling but the darkness in the clouds didn't look right. Fournier thought they looked chemical, somehow. He remembered when he'd felt sick in the fourth grade, in the middle of lunch. His mom had packed grape juice for him. The nurse touched his forehead with the back of her hand, asked if he felt "lightning" in his tummy. He said he did. He was positively burning up and as she was calling his parents, his inevitably-upset-at-having-to-inconvenience-themselves-and-attend-to-perpetually-ill-Ezra parents, he vomited all over. It was purple, with spots of haggard, yellow banana. Another girl walked in and then immediately walked out, horrified. Fournier's parents got divorced a week later. He wasn't sure why he was thinking about that now.
 
 "You know, I read somewhere that none of that's true. Those tribes and their ceremonies, they weren't about trying to control the weather at all. Just preparation. Just trying to prepare the populace for the inevitable. Of course, I guess they did still kill a virgin here and there. To be safe."
 
@@ -1640,7 +1640,7 @@ He turned around and checked for the machine. It was still there.
 
 "About you."
 
-"Don't sell yourself short. Soon you'll be all anyone's talking about." She pointed to a newspaper on the dashboard. Naram picked it up. The Daily Dorset. Triumphant and stretched on the front page was a blurry picture of the van taken from a distance. It was hard to see anything but Naram's silhouette peering into fantasic light pouring out of the back of the van like it was a portal to the horrific, splendor of the underworld. The headline was *Modern Witchdoctor: Man and Strange Machine Stop Dorset's Doom*. Tires clawed at the dirt. Naram threw down the paper to see the woman and the truck speeding off.
+"Don't sell yourself short. Soon you'll be all anyone's talking about." She pointed to a newspaper on the dashboard. Naram picked it up. The Daily Dorset. Triumphant and stretched on the front page was a blurry picture of the van taken from a distance. It was hard to see anything but Naram's silhouette peering into fantastic light pouring out of the back of the van like it was a portal to the horrific, splendor of the underworld. The headline was *Modern Witchdoctor: Man and Strange Machine Stop Dorset's Doom*. Tires clawed at the dirt. Naram threw down the paper to see the woman and the truck speeding off.
 
 He started the van and raced after them. The van gained. He could see the woman smiling in the bed of the truck. She stood and positioned herself behind the turret. She leaned back and aimed upwards. She fired. A beam of split light roared into the clouds, along with a capsule that burst high above them in a modest cough of violet smoke. It didn't seem to have an effect. And then the sky began to rumble. A sudden mist swam along the tips of the blades of grass and mingled with their tires' kicked-up dirt. She waved as fog rolled in and swallowed her and the truck and everything else. Naram couldn't even see the road.
 
@@ -1670,7 +1670,7 @@ The young man scoffed. "How trite."
 
 "This is bigger than that. We can save the rule. We can rule the world. Finally bring peace. Bring the government's of the world to heel."
 
-"That's enough Dexter." A woman stood in the doorway leading out into a sickly, florescent hall with five others. Two of them were dressed in suits with their hair slicked back like they'd just gotten off of actual news programs elsewhere. The woman was wearing a cardigan and a floral skirt and she had on thick cat-eyed glasses. Oslo could almost smell her tiny menagerie of felines breezing into the room on a convective air current. Aside from the two men who in suits there was a third suit. He was wearing his differently from the other two, his suit lacking any atom of professionalism. The lapels flared wide and his undershirt was unbuttoned all the way down to the pendant -- a crown -- hanging from a gold necklace so brittle it might break any second. Oslo just knew his name was Vinny. *It had to be.* The last guy had just touched down after a long vacation, from the looks of it. His shirt was all pineapples, palm trees, and coconuts with a toucan or parrot thrown in here and there for good measure.
+"That's enough Dexter." A woman stood in the doorway leading out into a sickly, florescent hall with five others. Two of them were dressed in suits with their hair slicked back like they'd just gotten off of an actual news programs elsewhere. The woman was wearing a cardigan and a floral skirt and she had on thick cat-eyed glasses. Oslo could almost smell her tiny menagerie of felines breezing into the room on a convective air current. Aside from the two men in suits there was a third suit. He was wearing his differently from the other two, his suit lacking any atom of professionalism. The lapels flared wide and his undershirt was unbuttoned all the way down to the pendant -- a crown -- hanging from a gold necklace so brittle it might break any second. Oslo just knew his name was Vinny. *It had to be.* The last guy had just touched down after a long vacation, from the looks of it. His shirt was all pineapples, palm trees, and coconuts with a toucan or parrot thrown in here and there for good measure.
 
 "He's so overzealous," continued the woman in the cardigan, the cat-smell becoming actually oppressive, hurting Oslo's nose. "Evelyn," she said, walking over and extending her hand. Initially she was insulted and confused that Oslo wouldn't at least shake her hand and keep things cordial, when she was being so cordial -- her involvement with his capture notwithstanding. Oslo nodded to his hands, wrapped in mounds of duct tape, up against the arm rests. Her eyes rolled as she was about to say something she'd probably said a hundred times before. "Cheese and rice Dexter! This isn't *CSI*, or something. He's not a hostage! He's a friend!"
 
@@ -1678,7 +1678,7 @@ The guy in the pineapple shirt walked up behind the kid and smacked the back of 
 
 "Shiiiiiit!" said "Vinny". He skated over, all exaggerated movements, and affectations. If Oslo had to bet "Vinny" had grown up in a quaint suburb in the midwest, was beat up a lot growing up, and didn't have many friends. As a result "Vinny" found solace in movies. Gangster movies. "Vinny", he was guessing, had seen the *Godfather* at least fifty times. He was too much of a charicature. It was the only way. Oslo bet "Vinny" wasn't even Italian. Even a slightly. His hair was black but it was obviously dyed. "Vinny" tussled Dexter's hair and grabbed him around the shoulders. "Kid's just excited," that's all. "Nothing wrong with a little enthusiasm, huh?" Herald cringed.
 
-"Shut up Kevin," said Harold. Oslo made a mental to still call him Vinny. Vinny relinquished Dexter and simpered over near Evelyn.
+"Shut up Kevin," said Harold. Oslo made a mental note to still call him Vinny. Vinny relinquished Dexter and simpered over near Evelyn.
 
 "Well?" said Evelyn, gesturing to Oslo's restraints. Dexter began to walk over, but Vinny stopped him.
 
@@ -1868,17 +1868,154 @@ Nothing exploded. The thought had been scratching the paranoid, reptilian sector
 
 Paul was a guy Naram had met two weeks earlier on the internet, in a chat for weather enthusiasts. Normally Naram avoided such things, but he was desperate.
 
-It all started one day in Goldstein's office. Naram had been asked at the last second to oversee Goldstein's office hours since Goldstein had prior engagements that'd entirely slipped his mind. Naram, even then, assumed that Goldstein was just fucking with him, trying to eat up as much of Naram's time as he could in a misguided attempt to derail his research. Goldstein had left his office in a discombobulated state, Naram assumed, out of spite. There were books and papers scattered everywhere, and the air was choked with chalk dust. As Naram was organizing the papers, he came across a notice saying that Goldstein's application for membership in the SGMA had been rescinded.
+It all started one day in Goldstein's office. Naram had been asked at the last second to oversee Goldstein's office hours since Goldstein had prior engagements that'd entirely slipped his mind. Naram, even then, assumed that Goldstein was just fucking with him, trying to eat up as much of Naram's time as he could in a misguided attempt to derail his research. Goldstein had left his office in a discombobulated state, Naram assumed, out of spite. There were books and papers scattered everywhere, and the air was choked with chalk dust. As Naram was organizing the papers, he came across a notice saying that Goldstein's application for membership in the SGMA had been rejected.
 
 Naram had never heard of the SGMA, but now, he very badly wanted to figure out what it was and to get in. Goldstein might then be so overcome with vitriol and anger that he'd rather not deal with Naram's presence than force him to man office hours. So went Naram's thinking.
 
-The thing was, he couldn't find anything on the SGMA. It was only when he had nowhere else to turn that he signed up for an account on the enthusiast chat. The chat was known for pedantic, grating conversation about the science of the weather, a place where asking if it was going to rain could result in the most incendiary of flame wars. Naram logged on at a time when the chat saw peak traffic and asked what exactly the SGMA was. In a trickle, user's signed off, and then this turned into a deluge and then there were no more than five people in the chat including Naram. One of them was Paul. Paul said he knew. But he wasn't sure he could Naram.
+The thing was, he couldn't find anything on the SGMA. It was only when he had nowhere else to turn that he signed up for an account on the enthusiast chat. The chat was known for pedantic, grating conversation about the science of the weather, a place where asking if it was going to rain could result in the most incendiary of flame wars. Naram logged on at a time when the chat saw peak traffic and asked what exactly the SGMA was. In a trickle, user's signed off, and then this turned into a deluge and then there were no more than five people in the chat including Naram. One of them was Paul. Paul said he knew. But he wasn't sure he could tell Naram.
 
 The days that followed were dominated by this coquettish dialogue between Naram and Paul. Paul would reveal a small bit of information, but nothing more.
 
-The text: *Listen. I could lose my membership for this but you seem like the real deal. There's a guy you can meet. He'll fill you in.*
+The text: *Listen. I could lose my membership for this but you're the real deal. There's a guy you can meet. He'll fill you in. He'll point you in my direction. But I can't say anymore. They could be watching... Here: 14 Maple. Lexington.*
+
+(I'm not sure that naram will, or should know that Oslo is trying to kill him, i think there could be something interesting about him misunderstanding the whole thing.)
+
+(maybe Oslo accidentally blows the notes up, after blowing up his car. As an intimidation tactic. Oslo is pissed then determines to come and rough naram up, thinking that naram's in his old apartment, and naram goes along with it.)
+
+Not breathing, he carved the address on the back of his hand. He logged out, closed the window, and leaned back passed what his office chair was made to handle, until two of the wheels lifted off and he almost fell backwards. This could be the break. His Break. You hear about the Big Ones having Breaks all the time; flashes of insight or Destiny herself serendipitously dropping everything they needed right in their laps. Sometimes it'd been there the entire time. Other times, It sublimated out of the air, like magic. The SGMA had been haunting Naram. First it was all over the research. Over and over again like someone was trying their damndest not to get sued there were notices that sections were SGMA certified or were pending certification and that cited scientists were actually in SGMA and not nobodies scuttled in off the streets. There was even the scribbly note of caution on the front: *If you're reading this and you're not in the SGMA -- lawyer up!* Because apparently that person felt getting the absolute shit sued out of you ranked sufficiently high in everyone's untold but everpresent, list of fears.
+
+Naram wanted to tell someone. He picked up his phone thinking of Jin, but then he thought better of it. *Don't call. Or text.* With Jin these weren't mere words. It was getting hard to count the number of times he'd turned minor misunderstandings into week and month long skirmishes, bite-sized wars of attrition that never ended well for him.
+
+Coincidentally, his phone rang just as he was putting it away. Not Jin but an unknown number. If there wasn't the chance that it was Paul, he would've let it go through to his voicemail, but there *was* a chance, and he couldn't just let more information slip through his fingers.
+
+"Hello," said Naram into the receiver, smiling he was so excited.
+
+"Look out the window."
+
+"Wait, who the fuck is this?" Naram said, his blood that quickly tainted and burning. Still, he kicked the chair over to the window.
+
+"Shut up. Look at your car." Naram did so.
+
+"Look I really don't see -- " and then Naram's car hopped, as fire spilled out its guts and propelled it off the ground, the scene calling to mind missions into Outer Space gone awfully, terribly awry. He his mind wandered, and he, for the first time he thought about what it was that could've been the critical flaw, what was the root cause of those failures? A loose screw? Spilled coffee in Mission Control?
+
+"You saw it?" asked the faceless voice.
+
+"Yes."
+
+"Good. So, you know I'm not playing around. This is very serious Mr. Nazari, but none of this has to cost you your life. Just give me the research. Yours and what you stole."
+
+*The Weatherman?* The funny thing was Naram's research had been in his car. All of it. Even the research which he may or may not have stolen. And now it was all just flaming scraps of paper turning to inscrutable, ashen dust in the wind. Of course Naram had backups of his new research on his computer.
+
+"You just blew it up."
+
+"...you're kidding."
+
+"No. You *really* fucked up." Maybe, Naram thought, he was enjoying this too much, considering that even with the object of this extortion blown to smithereens, there was still an evidently murderous psychopath with a bent towards meteorological research, roaming out there in New Hampshire.
+
+The voice came in quick bursts, waffling. "Um, um...backups! Backups, you have backups right? You'd be stupid not to have backups!"
+
+"Hey, you're the one who blew up my research, no need to go insulting me. As a matter of fact if I was so stupid, it's unlikely you'd be blowing up cars and star-67-ing me like a teenage goon -- "
+
+"-- listen you, you...fuck! I'm coming up to Geisel Hall right now, and I'm going to drag you out of room 207. Yeah, not so tough now, huh hotshot? You're gonna give those backups or you're gonna personally tell me every single thing you know."
+
+"Oh god. How'd you -- "
+
+"-- yeah that's what I thought," he made a kissing noise, "see you soon."
+
+The fact that Naram had actually moved out of Geisel Hall 207 three months earlier and was now living in off campus housing did little to calm him. While consciously he was biting his nails and contemplating what the campus paper would say in the event of his sudden disappearance or -- god forbid -- his untimely demise (it wasn't a great headline), his unconscious mind was bobulating information and recent events into a plan.
+
+---
+
+(maybe this is like senior week for jin, dq is a junior)
+
+It wasn't easy. Naram wasn't particularly stealthy by nature and god had given him little in the way of athleticism. Because he thought they'd be quieter, he'd changed into his slippers, the kind old men shuffle around in as they plot their fifth Old Folks Home escape attempt of the day. Naram had the morbid thought that he himself was doomed to shuffle around in them, battling senility and having to be constantly reminded that, no, his wife had been dead for years. He shivered. They were Jiddo's old slippers. The slippers were marginally quieter than the shoes Naram usually wore. He threw clothes into a backpack with his laptop, scooped up Ifrit, and left the room.
+
+He took rocky paths and shortcuts across dewy patches of the green to Jin's.
+
+She was not happy to see him.
+
+"Leave. Now." She said, microwaving popcorn, even though she wasn't supposed to have a microwave. This kind of selective rule-breaking was typical of Jin.
+
+"This is important. A *really* big deal."
+
+The microwave's alarm blared. She removed the scaldingly hot bag and drowned the room in the mouth-watering scent of popcorn and synthetic butter that so tasted like the real thing you'd scarcely be able to believe it. "Isn't everything with you."
+
+"Seriously."
+
+"No," she said, heading to the couch. "We're just starting a movie." A girl lay on the couch on her back, her legs ran up the back and hung over the edge. Jin tossed some popcorn into her mouth, which was opened skyward.
+
+Naram waved. "Naram," he said as an introduction.
+
+"DQ," she said back.
+
+"Fine. Listen. So what if I told you that I thought we should leave now because some crazy shit just happened and I really don't feel like we're safe just hanging around here. What if I told you that huh." Both Jin and DQ continued to stare without blinking, straight ahead.
+
+"*Is* that what you're telling me?" asked Jin.
+
+"Yeah, it was sorta unclear from your phrasing whether that was actually what you were saying or if it was all hypothetical. Wait, *shh*. This part's hilarious," said DQ.
+
+"Yes, I'm saying that. Yes." Ifrit hopped on the couch and situated herself atop DQ's upturned stomach. DQ began to pet her, glossing her coat with dribbles of butter. "Jesus, could you," Naram leaned in front of the television, "do you mind not buttering my cat?" He tried brushing the flecks of salt and kernel out of the cat's fur. "*Our* cat," he added, glaring at Jin.
+
+"Hey don't be hostile. If you're gonna be like that you can *really* leave." said Jin. "Which reminds me, why the hell are you still here? I can't even look at you right now."
+
+"My car blew up!" Naram screamed. The cat leapt from his arms and skittered back to DQ. Angry pounding issued down through the ceiling. Naram looked up, extended a trembling middle finger and yelled: "Go fuck yourself!"
+
+"Oh come on. You may not have to deal with it 'cause you don't live here, but I will definitely have to deal with it. They're actually nice people."
+
+"Really nice," added DQ.
+
+"They're just studious."
+
+"Studious? Aren't you all fucking leaving in a couple days? And yeah, what're you talking about *you'll have to deal it*, you're gonna say goodbye to the entire continent in like a week."
+
+"So your car? You were saying it blew up? How exactly did that happen. Did you like leave it running? I mean, that piece of shit was bound to blow at any time -- "
+
+" -- it didn't just spontaneously go *oh I think now is a fine time to blow up, fuck Naram, always hated that guy!* No. That's not what happened. It was blown up."
+
+"Oh well see that's not what you said," said DQ.
+
+"Could you just," Naram said, "please. Just butt out?"
+
+"She's just stating facts N."
+
+"Ok, we're totally getting off the rails here. Because, to me -- and maybe I'm just out of goddamn mind -- the important thing here is not the semantics. Maybe it's the fact that my car was blown up."
+
+"But how do you *know*?" Right on cue, Naram's phone rang. He knew who it was without looking. He even smiled a little, which was odd, because it was hard to imagine that anything that was about to come over the phone (on speaker) would be in the spirit of levity.
+
+
+
+
+
+
+
+(the man with the combover and the mustache was actually Fournier in disguise)
 
 (Big thing, how are the SGMA and the weatherman connected? Oslo's going to call and scare Naram out into the open, but now it has to be utterly urgent and possible for Naram to get information he needs to move forward with the machine. I have to figure out a way to give more context about the world.)
+
+(Maybe Naram uses his prototype device to get out and head out on his adventure)
+
+### How Naram Found The Research
+
+A befuddling, unlikely sequence of events including murder by Oslo. The documents just sort of ended up in Naram's hand. Maybe this was while he was on a trip with Goldstein.
+
+(anyone that can do light-based weather manipulation is affiliated somehow with the weatherman)
+
+(naram has been having trouble with the psychogenic effects of the machine when he uses it, especially with megogel)
+
+(why the hell would the weatherman help him? he wouldn't)
+
+(I think the weatherman has to leave a clue or otherwise engage naram, bc otherwise it's not clear how naram is supposed to go about his goal of building the machine)
+
+(I need all this setup about the state of the world and hiran anthony's ultimatum, to lend additional timeliness to the plot.)
+
+(What's naram's plan once he's built the machine, what does he ultimately want to do?)
+
+(I think he'll also be threatened by the idea of being exposed by Oslo, but, it seems like being killed would be worsed)
+
+(I have no idea how it is that Naram comes about this new knowledge and new research to get closer to who the weatherman is and uncover more about the technology in the machine)
+### The Whole Thing With Hiran Anthony
+### How people found naram out
+###
 
 ### A.B.G. (Always be glowering)
 In which we jump back to Doug, contemplating what to do with the phone now that Idris got away, maybe not quite where he decides to turn the tables
