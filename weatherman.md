@@ -1980,21 +1980,335 @@ Naram waved. "Naram," he said as an introduction.
 
 "Ok, we're totally getting off the rails here. Because, to me -- and maybe I'm just out of goddamn mind -- the important thing here is not the semantics. Maybe it's the fact that my car was blown up."
 
-"But how do you *know*?" Right on cue, Naram's phone rang. He knew who it was without looking. He even smiled a little, which was odd, because it was hard to imagine that anything that was about to come over the phone (on speaker) would be in the spirit of levity.
+"But how do you *know*?" Right on cue, Naram's phone rang. He knew who it was without looking. He even smiled a little, which was odd, because it was hard to imagine that anything that was about to come over the phone (on speaker) would be funny.
 
+"Where the hell are you?"
 
+"...do you actually expect me to tell you?" said Naram.
 
+"..."
 
+"Because I'm not going to."
 
+"It's a small campus. I'll find you. You're going to tell me what you know you little shit."
 
+"Alright -- "
 
+" -- don't you dare you bast -- "
+
+"-- ok, bye now." Naram raised his arms, the *told you so* expression.
+
+"And you haven't called the police...why exactly?" said Jin.
+
+"It just...I have...I don't really wanna involve the fuzz too much in this thing. Who knows what they're liable to do? There's some shady stuff that goes on."
+
+"Like what?"
+
+Naram, scoffing, "'Like what'? They could just appropriate it. They could just say *Boom, this is ours now.* They could say this is now a classified military secret. I mean, They tried to take Tesla's death ray -- which wasn't even a death ray but that's a whole 'nother -- anyway, it could totally happen to me.'"
+
+Laughing, DQ flipped her lithe limbs right-side-up. "Ok, are you comparing yourself to Nikola Tesla?"
+
+"What," Naram bumbled, "no. Not exactly. I mean it's not *that* different. Is my point."
+
+"Oh my god," said Jin, barely decipherable though because her mouth was filled with the last crumbs of popcorn. She brushed passed Naram to throw the popcorn out. She washed her buttery hands, the whole time shaking her head. "You're unbelievable you know? You fucking ego."
+
+Naram, when he was angry, sometimes stood on the tips of his feet, his whole body extending tautly to it's full height, like a tuned guitar string. "It *could* happen. And -- ok fuck it -- maybe the Tesla comparison wasn't...the most apt. Well what about that kid huh? That middle eastern kid who brought that clock into school and was arrested because the police said they thought it was a bomb. You *definitely* can't discount the proven ability of the police to do some racial profiling."
+
+"Hello, um, I'm gonna stay anonymous but I'd just like to tell you that there's a car-detonating madman roaming the campus. Ok. Thank you. I'm not -- no, not giving my name. I *am* a student. Alright have a great night." DQ looked u from the couch, sliding her phone back onto the table. "That wasn't too hard."
+
+"Why did you need to come here?"
+
+Naram moved into Jin's airspace. He let his hands trace her crossed arms. Someone once told him that he had long eyelashes and dark, but mysterious and obsidian eyes, they said his eyes were in fact his best feature, and he'd never forgotten it. He fluttered his eyes in what he thought was an apologetic manner although, to Jin, it looked like something -- maybe a bit of dust or a rogue, foating particle of popcorn -- had gotten in them. She put her hands on his head and tried to blow it out, blinding a confused Naram. "What're -- what are you doing, why are you blowing -- "
+
+"-- stop backing up, I'm trying to help, just stop fidgeting. Stop -- "
+
+"-- I don't have anything in my eye."
+
+"Well, then what were you doing with your eyes? You looked like you were having a seizure...or a vision or something."
+
+"I was trying to be...nevermind. I'm here because my car blew up and I need to go somewhere. Like now."
+
+"So go."
+
+"I'm trying but I need..." he cycled his hands, one over the other in the air on an invisible hamster wheel, churning a convoluted phantom contraption Naram believed would lead her to say the words he needed. He refused to say them himself.
+
+"...what? What do you need?"
+
+"My car. Blew up. It's gone. I can't drive it. My car."
+
+"He needs your car." DQ, somehow, was up off the couch, standing by the door with her things gathered up in her arms, her coat and it's feaux-fur-trimmed hood throwing shadow on her face. Jin's keys hung from her upturned index finger.
+
+### 03232017
+(naram should have these trials, right? The world is racked by all of these climate issues and he's got to show that the machine work though still...what is his end game?)
+
+(there is also, i think, this undercurrent of academic espionage to the thing. Naram is getting increasingly paranoid, losing trust in the advisor he already hates, becoming very secretive about his, slavishly looking for clues, more on the weatherman and his notes, maybe a journal)
+
+(i do have to stop wafffling on weather he met jiddo or not, is jiddo the weatherman, htf did naram get the notes)
+
+(this is a series of things going on with naram on campus and naram's jumps to appearances, demonstrations toward the end, the defection at the nadir to the midwest and then the return...)
+
+(the thing about the return is, he can't defeat his enemies...and I'm not even sure he could feasibly run away)
+---
+Hiran Anthony makes this announcement that he's got his own weather initiative and he will announce that he's saved the world on some date in the semi-near future. He, shortly thereafter reaches out to Naram.
+
+The announcement sent ripples through the world. Hiran Anthony was the richest man in the world. God wished, openly, that he had as much money as Hiran Anthony, and Hiran Anthony knew it, as demonstrated by the fact that his company was named Chroesus.
+---
 (the man with the combover and the mustache was actually Fournier in disguise)
 
 (Big thing, how are the SGMA and the weatherman connected? Oslo's going to call and scare Naram out into the open, but now it has to be utterly urgent and possible for Naram to get information he needs to move forward with the machine. I have to figure out a way to give more context about the world.)
 
 (Maybe Naram uses his prototype device to get out and head out on his adventure)
 
+(I don't think you'd continue to be able to go about you're day trying to do your work, knowing that, you're work had been exploded. Or rather, what are the conditions where you would be able to...? I think Naram can't receive an overt phone-call from some guy and not be uber distraught that someone is trying to kill him. Maybe he suspects it but in a paranoid way, because he had volatile chemicals in the back. The reader has to be suspicious.)
+
+(Maybe Oslo can be this mopish firebrand within the community, never able to quite fully realize the thing they were talking about, all of them having given up on figuring out who the weatherman is)
+
+(how does Oslo find out about Naram? This broadcast idea is interesting but it can't feel like it exists solely for the purposes of the dissemination of this information or important, plot-moving info in general)
+
+
+
+### 03242017
+(I think maybe the story takes the place over the course of the last year of Naram's project, as he's finishing up, this is Jin's last year before she graduates and this is the story of the machine and the crazy shit that happens but also Naram having to make a decision about his life)
+
+"I wish everyone could have everything they ever wanted. To see that it's not the answer." - Jim Carrey
+
+DQ brought Jin one of the two latte's she was holding, licking foam from her lip gleefully.
+
+"Thanks," said Jin, nearly dropping a dutiful Barista's work all over the cobble sidewalk. She was distracted by a banner hanging off of the street light to her right. *Welcome Class of 2021* "It's like, that's not a real year. That can't be," said Jin, a junior, well a senior now that she had officially arrived on campus.
+
+"I see what you mean," agreed DQ, "it's like, it's the kind of year they used to use in sci-fi books." A passing student bumped her. Cars whined in the street at freshman crossing whenever they felt like it. DQ giggled. "And we were supposed to have flying cars and be able to beam intelligence into our skulls by now. I mean, we have *smartphones* and Twitter so...I'd say we've done a good job." Jin relocated to the her friend and the campus and the sidewalk. And her latte. She still had the entire year. And DQ was only a junior. DQ would let her crash if she ever missed it so badly in her bones that she just had to see it all again. Smell the air.
+
+Inevitably that first day ran from a stream of half-sincere meetups, hasty, long overdue lunches and dinners. Naturally the day ended in a fraternity basement.
+
+It was three in the AM when she rushed out into the night, the smell of stale beer and frustrated sexual tension wafting up behind her as she went out the door. Seconds later and there was DQ beside her. Neither of them had brought a coat. A tickling, brisk breeze washed over the street. It was never that cold old over the summer, Jin thought. Fall was already coming. She got that distant look in her eyes again.
+
+"Hey, let's grab some food." That time of night, there was only food in the vending machines. Some of the dorms. They picked the nearest ones.
+
+A low electric hum sang through the halls. When they found the vending machine Jin bought a bag of Cheetos and DQ a bag of gummies. The found a student lounge, trying to get away from the consistent, one note drone in the halls. Jin kicked off her heels and threw her feet up on the table, popping one cheeto after another into her mouth. "You hear that?" she asked.
+
+The low *hmmm* still. It was so low and constant that after awhile you could probably trick yourself into simply not hearing it, but coming from outside, a totally sans-hum environment, the sound was kind of grating. Like an itch that needed scratching.
+
+"Yeah, I thought it was just me," said DQ. Jin shook her head. DQ had finished her candy. "Ready?" she asked.
+
+"No. I gotta get to the bottom of this." Jin's drunken forays into private detective work were not entirely uncommon. More than once it'd gotten campus police called on them. One time, Jin caught pneumonia.
+
+The duo wandered back into the hall. The hum was coming from the first floor, Jin was sure of it, so she started at one end of the hall and walked, wide-eyed, and slower than a glacier. Then, two doors from the opposite end of the hall, the floor was shaking subtly. "This is it," said Jin. All light then was sucked out of the building. Light lashed out in brilliant, spindly, fingers underneath the door. Jin's pulse quickened. Briefly, a mechanical groan sounded, and then the lights rushed back on. Jin banged her heels --which were already in her hands since they were new and dreadfully uncomfortable-- into the door. Footsteps, then a hard sack-of-potatoes fall, then more, slower, footsteps. DQ laughed, trying to stifle with her hand, as she acted like she was jerking off in the air.
+
+"Um," started Jin,"hey buddy. What's...uh...what's happening in there?"
+
+"Nothing. Go away," said a voice on the other side of the door.
+
+"You know you knocked power out in the building right?"
+
+"Yes. Go away."
+
+"Look, if you don't open the door, we're gonna have to tell someone what you're up to and --" The door flung open, letting out a rush of wintry air. Snowflakes gushed out of the room and died quickly against the carpet and the wall and the girls' unbelieving faces. A tallish boy wearing goggles leered into the hall. The lights had gone out again. His features were lost in shadow, due to the glaring gleam behind him.
+
+"What the fuck?" whispered Jin, breathless.
+
+The boy lifted the goggles. Jin could tell his eyes were nearly black, inquisitive. He stuck out his hand. "Naram."
+
+"Jin."
+
+"DQ."
+
+"Hm. Well, hello Jin and DQ. Can you keep a secret?"
+---
+Naram gave the girl's strict, like *I will make your life a living hell*  strict, instructions not to tell anyone about they'd seen. As long as they did that, they had nothing to worry about.
+
+"It's not like I'm gonna hire some old Italians to come grab you in the middle of the night, restrain you, chain cinderblocks to your ankles and dumb you in the river. Have you sleep with the fishes, or whatever. That's crazy, I'm not crazy." He'd said, although he definitely gave a serious thought to question of how many pseudo-reformed gangsters were actually within a reasonable distance of campus.
+
+There was the additional caveat that he never wanted to see them again.
+---
+### Miracles and Monkeys
+
+One week. One week later and it was four in the morning and there was still life in the halls. Coherent, not-stumbling-over-itself life. With the life there came pounding on his door. Naram was in the middle of reading. He opened the door, immediately regretted it, but before he could seal up the breach he'd open, in walked Jin. Just Jin.
+
+"Wh-what're you doing?" asked. His eyes were bloodshot. He hadn't slept in since Friday. It was Sunday. "Don't you have, I don't know, drinking to do? Or friends?"
+
+"Honestly?" said Jin. Already her shoes were off and she was sitting, cross-legged on his bed. In his exhausted state, her florescent pajama pants and their occasional iridescent thread stung his eyeballs. He actually had to look away. "Not used to having girls in here?"
+
+"Not random ones. At four AM, no."
+
+"I wanna see it."
+
+"As flattering as that is, I'm not in the mood. And I mean no offense. It's me, not you."
+
+"Not -- c'mon. The...Thing." Despite Naram's less than chiseled facial bone structure, Jin saw the muscles in his jaw clench.
+
+"What...Thing. I thought we had a specific agreement that there never was, nor had there ever been a Thing."
+
+Jin sprawled out on her back. "You know what I'm talking about. The snow? Indoors?"
+
+"Not ringing a bell, I do however recall a conversation -- quite vividly actually -- that you didn't see anything. Nothing happened. We agreed." Naram attempted to glower underneath his ample eyebrows, but sleep deprivation was making him look some admixture of high or drunk, and it was the opposite of intimidating.
+
+"Not in writing."
+
+"Look, I'm not showing you anything. Alright? Just leave."
+
+"Well that's too bad," said Jin as she slid off the bed, "because I thought it was pretty amazing."
+
+"Of course you did. It *was* amazing."
+
+She scoffed. Looking around the microscopic room -- seriously there were cubicles with more square footage -- and finding that it was entirely devoid of any device which looked like it belonged on another planet or in the laboratory of a mad scientist, Jin deduced the location of whatever this device was. If it was still in the room it had to be in the closet. She'd surreptitiously stolen a glance under the bed as she walked in and there was nothing there but a suitcase and some sad looking boxes. She feigned putting her shoe on, then at last second she tossed it at Naram, shouting *think fast*. For Naram's sake, it'd be nice to say that the reason he didn't catch the shoe was that his synapses were so besieged by sleeploss, that muscle operation at shoe-catching speeds was simply not achievable. The truth is that sleepless or not, Naram wouldn't have caught the shoe. The one time Naram had tried to figure it, he'd calculated that he'd caught less than a hundred things in his entire life, and this estimation *included* colds. No, the tossed shoe spiraling through the air and smacking him square on the nose, loosing torrents of blackish blood, for Naram, had always been mathematical certainty.
+
+So Jin was free to pry open the closet and gaze in on an entangled mass of duct-tape, found miscellany -- including, of all things, what could only be described as a future-heart-attack sized can of iodized salt, and cords slithering over one another in a heap. "Oh my god!" said Jin. She turned around to see Naram, slouched against his bed and clutching his face, a river of red pooling on the carpet. "Oh my god!"
+
+One box of kleenex later, Naram's nose had stopped bleeding and Jin was still profusely apologetic. "I can't say sorry enough times. I never intended for anyone to get hurt."
+
+"And yet you threw a shoe at my face."
+
+"*Lobbed*, just for -- in the spirit of complete accuracy." Naram smoldered. "Is that all it does?"
+
+"For now."
+
+"So it's -- it's really a...a -- "
+
+"-- weather machine." Somewhere behind the mash of bloodied tissue Naram was still cautiously using to stop up the red geyser on his face, Jin could see a minute upturn in his features, pride.
+
+"Well, isn't it really just like a...fancy air conditioner?"
+
+"It was snowing. In the room."
+
+"Exactly."
+
+"I don't think you understand, this is a minor miracle."
+
+"Whoah," said Jin, angling to his face for all the kleenex. "God complex much?"
+
+"Ok." He stood from the bed, tossed the tissue in the garbage, dabbed his nose with his sweatshirt sleeve to confirm that he wasn't leaking. "Can you just leave. Please. Physical assault is one thing. But, kicking a guy in the metaphorical balls while he's down? I can't abide it."
+
+"I want to help."
+
+"That's not how it works, this is my project, for my PhD. It's my baby, plus, you don;t know the first thing about weather modification. Let alone what I'm working on, which is bleeding edge. Beyond that even. It's...it's..."
+
+"Magic?" said Jin. Her shoes were on now, yet she hadn't moved from the center of the room. She stood with one leg crossed in front of the other, arms loosely akimbo. "It certainly could be. And I haven't left yet, and I'm back in the first place because...you ever feel like nothing matters? Everything's a cycle. And it runs and runs and you're just swept up? I didn't notice until the other day. It was this feeling like being drowned in an undertow and I wanted to scream but...I didn't think anyone would hear me."
+
+"Listen, I don't want to be a dick, but I don't even know you. And this is *everything* to me. This is the only thing that matters and can't have it botched by a random -- "
+
+"Chemical Engineering and Computer Science double major."
+
+"That's nice but -- "
+
+" -- 3.9. Already have a job working in Shanghai making an ungodly sum of money. I know I can help. I want to do at least one special thing. And if your overwrought air conditioner isn't special, I don't know what is."
+
+"Fine. But don't flake. You undergrads always flake."
+
+"Great," said Jin. She winked. "So what's step one in our plan for world domination?"
+---
+Naram switched on the fan, plugged in all of the humidifiers. There were six in total. Overkill likely. He was sweating and he was in nothing but his holey underwear, which his mom had actually sent him from Mecca, during undergrad. His father was the believer, and she'd only gone because it was a somewhat momentous occasion. He couldn't think of a reason to send his mom a letter so her told he needed underwear, just to be able to write *love, Naram* at the bottom and for his mom to read the words. The underwear arrived a couple of weeks later.
+
+"Um, Mr. Nazari? Um, hello?" Damn, thought Naram. It was that kid, Ivan Hertz. A disgrace to the name: there was nothing the least bit foreboding or remotely terrible about the kid. He was tall, gangly, and spoke in a thin, wheezing voice that Naram imagined an iguana would have if iguanas could speak. He complained about something or other twice every week. There's an argument to be made that if Naram didn't want to deal with such things, signing up to be a Community Advisor was an inadvisable thing to do, but eat essentially nothing but Top Ramen for the better part of two years and you're liable to do some fairly inadvisable things.
+
+Naram opened the door. Aside from the steam billowing out in to the hallway, a plausible explanation for Ivan's suddenly mortified state might have been that Naram had forgotten to put on pants. One of the holes in the lower left was rather large and, understandably, someone burdened as Naram was by his intellectual endeavors was simply not very well kempt. Plus, there was about three inches of Naram Nazari hanging out, ignominiously wagging in the hall's nonbreeze. "Can I help you Ivan?" Naram, feeling the chilly reality of the hallway, knew what was happening in regards to the Genital Spectacular he was accidentally putting on for Ivan, but the best course of action seemed to be to do nothing. Not focus too much attention on it. Not make it any worse than it already was.
+
+To put a stop to his stammering, Ivan raised the book he was holding, *The Prince*, to cover his eyes and preserve whatever remained of their besmirched innocence. "Weed. People are smoking it. It smells like Woodstock out here Mr. Nazari."
+
+"Ivan. It's college. Frankly, *you* could use some."
+
+"Are you -- it's *illegal*. And it smells awful. I can't even study."
+
+"Well then go to the library Ivan."
+
+"I don't *want* to go to the library. I want to study in my room. It's my right, I should be able to study in my room. Why can't you understand that? Does it have anything to do with the miasma flooding out from your room?" Ivan put the book down. His gaze narrowed. He was taller than Naram, and hunched down and forward to look into the Community Advisor's eyes. "Are you high right now Mr. Nazari?" he asked.
+
+"No. Just tired."
+
+"Mhm. Sure. That's what they all say." Ivan turned curtly on his heel and speedwalked to the exit. "I'm telling my dean!" he yelled. "Potheads! I'm surrounded by potheads!
+
+As Ivan left through the open door, in came an out of sorts Jin, with her various books and a laptop threatening to spill and crash right out of her unzipped backpack. "I'm sorry I'm late," she said, brushing by Naram with only the briefest glance at Naram's Extravaganza In The South.
+
+The water vapor in the room had left hastily into the hall, however, all Naram had to do was close the door and within five minutes it was once again hard to breath and beads of liquid formed on every available surface.
+
+"Could you put some pants on please," said Jin. "I had a pickle for lunch and this is somehow even more unsettling because of that."
+
+Naram, having obliged Jin's request, tossed her a pair of goggles. She caught them easily and slapped them over her eyes. "Damn. Should've thrown 'em harder. You'll get yours eventually."
+
+"Probably not. I have excellent hand eye coordination. Although, judging from the other the day the mere existence of any athletic aptitude ought to be sufficient to deal with whatever you might throw at me."
+
+"Shut up."
+
+Naram connected two extension cords, and the device, situated atop his desk, purred. He called it the Cumulus 1. He turned a dial and the demur purr increased in pitch and a gossamer green laser, from a jutting appendage capped with a lens at the end, severing the room in two through the space between he and Jin. Naram was stonelike. Jin kept looking up into his face for some sign that it was working. No such luck.
+
+"Should something be happening. Is something happening, but I'm just not seeing it?" asked Jin.
+
+"No. Nothing's happening. It's -- *obviously* nothing's happening." His thumb and forefinger pinched his lower lip and he hunched over the Cumulus 1 with his face about an inch from the fire hazard. "I made some fixes earlier today."
+
+"Fixes? Was it working too well before?"
+
+"Clearly I fucked up somehow."
+
+"Clearly."
+
+"It doesn't make sense. I tried to get it to suck up less power. It started to spark this morning. Almost burnt down the place. Has a tendency to do that when I run it at max."
+
+"So you're not running it at max?"
+
+"No," Naram turned just in time to find her pixie-like hand grasping the dial, anxiously waiting to crank it as far as it'd go. "No! No!" he yelled, frozen in horror.
+
+"You have to at least try."
+
+"Oh, that simple huh?" She turned the knob ever so slightly to the right. What had been purring was now a baritone, over-exerted groan, like the machine had slipped a disc. No smoke yet, though the air was definitely marked with incipient notes of burnt plastic. "You have to ask yourself if you're willing to go to jail for arson. Because if I'm asked, you'd better believe I'm throwing you under the bus. Otherwise you know what they'll say right? They'll see the flames and this thing and then they'll see me, and instantly they're gonna toss me in a dark hole and accuse me of a terrorist attack that they just happened to stop in the nick of time."
+
+"No they won't."
+
+"Yeah they will. They'll get medals."
+
+In the time that Naram had taken to launch into his rumination on racial profiling, Jin had turned the dial. Had turned it so far in fact that it came off in her hand. There was smoke and toxic plastic fumes seeped into their lungs, causing each of them to rush to the window. Naram was in the process of peeling it open when Jin grabbed his arm and pointed to the center of the room. Nonchalant, as though it happened every day, a lilliputian cloud hung in the air at waist-level along the green ray that bisected the dorm. Jin passed her hand through it, and the cloud split in pieces, cottony stuffed animal entrails impossibly suspended above the floor.
+
+"In the interest of our brain cells and as a corollary the future of this project, I'm going to open the window." said Naram. The seal broken, the cloud was torn asunder in the onrush of the room's escaping gaseous contents.
+
+Jin removed her goggles and slid down to the floor, her glittering teeth showing in a wondrous smile. Naram sat next to her. He smelled her briny, pickle lunch in each sporadic giggle. Naram found that he strangely wanted a pickle though he'd never liked them. "This is amazing," said Jin. He felt warm. His palms were suddenly slippery resting on his legs. "You're blushing," she said. And Naram noticed for the first time that Jin had these dimples and even though she looked half-on the verge of collapse she was adorable. He inched away, along the wall.
+
+"Well I think we're done," said Naram. "I -- thank you. We made good progress."
+
+Jin checked her phone. "Oh. Ok. Um, well, feel free to say no, like I understand if I'm being totally intrusive and imposing, but I'm like super tired right now. Like so tired, and I have a study group thing in two hours and I don't really feel like going back to my room and I was wondering if I could just, I don't know, take a nap here -- "
+
+"Sure!" Then, a little less eagerly, "Yeah, that uh, that won't be a problem. Not imposing at all. You know, if it's just a couple hours."
+
+"Great!" Zero words, three steps, a hop, and she was in Naram's bed, and she burrowed under the covers and must've fallen asleep within five minutes. Naram sat in his desk, trying not to look at the girl drooling away on his pillow, and failing about every forty-five seconds. He wasn't a hypochondriac or one of those irrationally concerned with the everyday microbial onslaught each us finds ourselves enmeshed in from the moment of our birth. But this was foreign spittle where he put his head every night. That it was a young woman's drool, and a woman with impeccable oral hygiene (albeit a pickly brand of halitosis), did little to assuage Naram's concern. Tonight, inevitably, he would roll over and find his nose against crusty oral residue, and it would not be his own. He could wash the pillow. It took exactly 143 steps to get to the washing machine and back if you took the steps two at a time. It had been such a demanding day that Naram wasn't sure if he had 143 steps in him. And truth be told this was better than his usual pastimes of pouring of notes or throwing a tennis ball against the wall and failing to catch it. He turned once again from the ostensible work on his desk to inspect Jin and the thoughtless up and down of her small frame. His eyes followed the current of the limpid stream flowing onto his pillow with a morbid fascination and then --
+
+*Knock, knock, knock!* Jin eyes grudgingly opened. Naram was caught. It didn't help that he'd taken his pants off. It was what he normally did when he was by himself in his room, which was always, and he was doing her a favor and she was asleep. He saw her eyes register his lack of pants. "Not what it looks like." He knew saying that somehow made it worse. *Knock, knock, knock* Naram opened the door to find a stout woman, maybe forty years old, glaring in the doorway and Ivan leaning against the wall behind her.
+
+"Hello Mr. Nazari, I'm Ivan's dean." There he was, thankfully tucked away but no less exposed really, with a girl curled up in his bed. Not that there was anything wrong that, *per se*. Or there wouldn't have been if one of Ivan's frequent complaints wasn't that he heard strange and loud noises emanating from Naram's room at all hours of the night. That combined with the other typical complaints and today's debacle meant that Naram knew he was finished as Community Advisor before the dean had to utter one more word.
+
+"This isn't what it looks like," said Jin.
+
+---
+
+They threw him in an off campus house. It was the worst thing that could've happened. Naram wasn't good around new people. And these new people had every reason to hate him. He was the new guy, a foreign body, and while he was going to help out with the rent, he was necessarily throwing off whatever vibe had been established.
+
+Naram stood on the doorstep. He rung the bell. Grimacing, he turned around at Jin in her car, the entire latter half of which was occupied by Naram's worldy possessions. Mostly the Cumulus 1. She gave him an unsure smile. She had class. She was helping him because she felt partially responsible. That wasn't actually true, it was going to happen sooner or later, but if she wasn't there it would've meant Naram pathetically dragging boxes across half of New Hampshire in a pessimistic mizzle. On the fifth ring, someone came to the door.
+
+"Hello?" A mass of unmanaged auburn hair and a highlighter yellow track suit stared back and rubbed its eyes.
+
+"Yes. Hello? I'm Naram? I'm moving in?"
+
+"Oh yeah," the tracksuit said, yawning, "Deepak said you'd come by. Sorry if you've been out here awhile. I was sleeping. I'm Andre."
+---
+Andre helped Naram bring all his stuff in. Once he was situated, Andre brought him out into the living room, poured tepid coffee that had been sitting there since breakfast (it was two in the afternoon), and began to tried to talk with his new house mate. "So I know nothing about you dude. Deepak thought you sounded chill. Plus we've been struggling with rent a little, so...Tell about yourself dude!"
+
+---
+### The Run
+pilfering -- "
+
+"-- nice SAT word Naz -- "
+
+"-- thank you, but I might say something closer to the truth which is that we're pilfering a car battery and then stealing away in the dead of night, for probably nefarious ends. Point is, it doesn't look good. Most people would say we ought to be thrown in jail."
+
+"Most people aren't building a weather machine," she said finally.
+
+Back at the lab, they shut off the machine and connected their ill-gotten battery. Naram signaled Isabel to activate the device. It jerked to life, as if defibrillated, and the light grew so pupil-dillatingly bright and hot that they each threw up their hands to shield their eyes. And then it shut off. When they opened their it was so dark, it  was like they'd been dropped in a vat of ink.
+
+"It was a good run Naram," said Isabel.
+
+Jin scoffed. "Well we could at least go check for fuck's sake!" she said, climbing up through the hatch in the ceiling. The others followed, except for Naram. Somehow it was better to just not see. His heart was so low then, just staring at the coffee-speckled carpet. They weren't saying anything though. He looked up and felt a flicker in his chest. The moon, so brilliant before, was barely visible behind a deep veil of cloudy sky. Furthermore, goosebumps burrowed up on his skin, as frigid air sunk down through the hatch.
+
+And then it began to snow.
+
 ### How Naram Found The Research
+
+(it's his grandfather's research, which in turn is semi stolen)
 
 A befuddling, unlikely sequence of events including murder by Oslo. The documents just sort of ended up in Naram's hand. Maybe this was while he was on a trip with Goldstein.
 
@@ -2054,7 +2368,6 @@ Footsteps echoed at the front of the cafe, accompanied by luggage clicking along
 "This is what we were saying!" exclaimed Fuwaz. Fatma hit him again.
 
 Naram laughed.
-
 
 # Appendix
 
