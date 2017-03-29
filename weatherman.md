@@ -2122,7 +2122,7 @@ There was the additional caveat that he never wanted to see them again.
 ---
 ### Miracles and Monkeys
 
-One week. One week later and it was four in the morning and there was still life in the halls. Coherent, not-stumbling-over-itself life. With the life there came pounding on his door. Naram was in the middle of reading. He opened the door, immediately regretted it, but before he could seal up the breach he'd open, in walked Jin. Just Jin.
+One week. One week later and it was four in the morning and there was still life in the halls. Coherent, not-stumbling-over-itself life. With the life there came pounding on his door. Naram was in the middle of reading. He opened the door, immediately regretted it, but before he could seal up the breach he'd opened, in walked Jin. Just Jin.
 
 "Wh-what're you doing?" asked. His eyes were bloodshot. He hadn't slept in since Friday. It was Sunday. "Don't you have, I don't know, drinking to do? Or friends?"
 
@@ -2270,15 +2270,15 @@ Jin checked her phone. "Oh. Ok. Um, well, feel free to say no, like I understand
 
 *Knock, knock, knock!* Jin eyes grudgingly opened. Naram was caught. It didn't help that he'd taken his pants off. It was what he normally did when he was by himself in his room, which was always, and he was doing her a favor and she was asleep. He saw her eyes register his lack of pants. "Not what it looks like." He knew saying that somehow made it worse. *Knock, knock, knock* Naram opened the door to find a stout woman, maybe forty years old, glaring in the doorway and Ivan leaning against the wall behind her.
 
-"Hello Mr. Nazari, I'm Ivan's dean." There he was, thankfully tucked away but no less exposed really, with a girl curled up in his bed. Not that there was anything wrong that, *per se*. Or there wouldn't have been if one of Ivan's frequent complaints wasn't that he heard strange and loud noises emanating from Naram's room at all hours of the night. That combined with the other typical complaints and today's debacle meant that Naram knew he was finished as Community Advisor before the dean had to utter one more word.
+"Hello Mr. Nazari, I'm Ivan's dean." There he was, thankfully tucked away but no less exposed really, with a girl curled up in his bed. Not that there was anything wrong with that, *per se*. Or there wouldn't have been if one of Ivan's frequent complaints wasn't that he heard strange and loud noises emanating from Naram's room at odd hours of the night. That combined with the other typical complaints and today's debacle meant that Naram knew he was finished as Community Advisor before the dean had to utter one more word.
 
 "This isn't what it looks like," said Jin.
 
 ---
 
-They threw him in an off campus house. It was the worst thing that could've happened. Naram wasn't good around new people. And these new people had every reason to hate him. He was the new guy, a foreign body, and while he was going to help out with the rent, he was necessarily throwing off whatever vibe had been established.
+They threw him in an off campus house. It was the worst thing that could've happened. Naram wasn't good around new people. Full disclosure: people in general. He'd known Jin for a month and that was the closest thing to a friend he'd ever had. And these new people had every reason to hate him. He was the new guy, a foreign body, and while they'd gladly take his rent, he was necessarily throwing off whatever vibe, whatever *homeostasis* had been established.
 
-Naram stood on the doorstep. He rung the bell. Grimacing, he turned around at Jin in her car, the entire latter half of which was occupied by Naram's worldy possessions. Mostly the Cumulus 1. She gave him an unsure smile. She had class. She was helping him because she felt partially responsible. That wasn't actually true, it was going to happen sooner or later, but if she wasn't there it would've meant Naram pathetically dragging boxes across half of New Hampshire in a pessimistic mizzle. On the fifth ring, someone came to the door.
+Naram stood on the doorstep. He rung the bell. Grimacing, he turned around searching for visual moral support from Jin in her car, the entire latter half of which was occupied by Naram's worldy possessions. Mostly the Cumulus 1. She gave him an unsure smile. She was already late for class. She was helping him because she felt partially responsible. That wasn't actually true, it was going to happen sooner or later -- she could've just asked Ivan --  but if she wasn't there it would've meant Naram pathetically dragging boxes across half of New Hampshire in a pessimistic mizzle. On the fifth ring, someone came to the door.
 
 "Hello?" A mass of unmanaged auburn hair and a highlighter yellow track suit stared back and rubbed its eyes.
 
@@ -2286,7 +2286,156 @@ Naram stood on the doorstep. He rung the bell. Grimacing, he turned around at Ji
 
 "Oh yeah," the tracksuit said, yawning, "Deepak said you'd come by. Sorry if you've been out here awhile. I was sleeping. I'm Andre."
 ---
-Andre helped Naram bring all his stuff in. Once he was situated, Andre brought him out into the living room, poured tepid coffee that had been sitting there since breakfast (it was two in the afternoon), and began to tried to talk with his new house mate. "So I know nothing about you dude. Deepak thought you sounded chill. Plus we've been struggling with rent a little, so...Tell about yourself dude!"
+Andre helped Naram bring all his stuff in. Once he was situated, Andre brought him out into the living room, poured tepid coffee that had been sitting there since breakfast (it was two in the afternoon), and tried to talk with his new house mate. "So I know nothing about you dude. Deepak thought you sounded chill. Plus we've been struggling with rent a little, so...Tell me about yourself dude!"
+
+Naram found himself missing Jin. *This is why I have nothing to do with girls,* he lied to himself. His stomach felt full of something toxic and disagreeable. It was suddenly impossible to fill his lungs all the way, his breaths now truncated and staccato.
+
+"Dude?" said Andre.
+
+"I'm, well, I'm working on a meteorology project."
+
+"Got sick of shitty forecasting huh?" A beer had materialized in Andre's hand. "I hear you man. There's been many a time when I've gone outside in shorts and my flops only to be rained on because some weatherman didn't know what the hell he was talking about. Right on."
+
+"Well...no, it's not that at all. It's -- predicting the weather is *actually* a very difficult problem."
+
+"Must be. We keep paying people to be wrong all the time."
+
+Naram could feel the veins pressing up against the surface of his skin. "It's a virtually impossible mathematical problem. I mean weather's a chaotic system." On those last two words Andre stopped mid-swig, a glint in his eyes. "Even with quantum computers we wouldn't be able to do it perfectly."
+
+"Chaotic systems?" Andre put his beer down. "I'm actually a math guy. You get into some pretty highfalutin' stuff at this point, but Chaos," his eyes filled with a glow, "is riveting." He picked up the beer again. "But yeah, we got off the rails. If not forecasting then...what?"
+
+"Weather modification."
+
+"Like...climate change stuff? You don't mean, like, making it rain, right?"
+
+"Of course I do. And 'climate change stuff' too."
+
+"Dope. So, do you have some kind of rig, or...?"
+
+"The Cumulus 1," said Naram.
+
+"Ah, must've been that big ass box. What does it do?"
+
+"Can make it snow."
+
+"Dude that's sick."
+
+"Well just in my room for now, given a pretty controlled environment."
+
+"You tried anything bigger than a room?"
+
+"No."
+
+"Want to?"
+---
+
+Naram was very drunk. Which was good because if he wasn't there was no way he would be about to do what he was about to do. Andre, mere minutes after hearing about the machine, decided that the perfect way to welcome this new housemate into the fold was to throw a massive party. Andre, it was pretty clear, was less experienced at throwing parties than he let on. He'd invited six other PhD's. Three math PhD's, one Russian Literature, and one Computer Scientist. Five guys, one young woman. Two beers in, Naram was steadfast in his refusal to run the Cumulus 1. He regretted even telling Andre about it. Five beers later he became more amenable to the idea. Jin pushed him over the edge.
+
+To check if he was too drunk, Naram kept tracing back over the events of the night, making sure he could construct a chain of memories up from spilling the beans to Andre on the couch, through to the present moment. The chain had become rather tenuous when Jin suddenly appeared next to Naram, DQ right along side her. His comrade sold him out. She pulled a full-on Benedict Arnold. Andre made one last desperate plea to see the machine go and while Naram was trying to wait for all the reasons he shouldn't do that to occur to him, Jin gave an answer in the affirmative.
+
+"The worst thing that can happen, is it doesn't run," said Jin.
+
+The two were standing in the middle of Naram's new room, staring down at the machine.
+
+"The worst thing? That'll be pretty embarrassing."
+
+"True."
+
+"That's not what you were supposed to say. And while we're talking about things you're not supposed to say, as my assistant -- "
+
+" -- assistant?"
+
+"Uh, yeah?"
+
+"We'll talk about that later."
+
+"Oh my god, just date already," said DQ. In answer, Jin cranked the dial on the Cumulus 1. A pop of shattering glass played as accompaniment to every spark of electricity in the house going out.
+
+"Naram, buddy?" called Andre from downstairs. "What's going on up there?"
+
+"Fuck." said Naram.
+
+"Can you flip the breaker back Dre?" yelled Jin.
+
+"Sure thing!" Andre replied.
+
+Moments later the machine was giving a tinny growl, alive with electricity. Multiple lasers spewed from Jin's modifications, the Cumulus 1 now looking like some kind of neon pincushion. A thin fog draped the room, but no clouds and no precipitation.
+
+"I think it needs more juice," said Jin.
+
+"Maybe just turn it up a little this time." Had the lights been on and Jin not been wearing goggles, Naram would've seen rolling eyes and annoyed, pouting lips. Too bad there wasn't a single unshattered light bulb in the entire house. She turned the dial through only a handful of degrees. Discrete clouds began to coalesce and burgeon out of the ether. The cloud cover increased until the ceiling was blanketed completely.
+
+And then it started to rain.
+
+"What's the hold up?" said Andre, just on the other side of the door. The door open and for an instant Andre saw the overcast ceiling, and gentle rainfall glittering in the laserlight. The instant expired, and the clouds vanished.
+
+"Dope," said Andre.
+
+Hours later everything was spinning. The only solace, as Naram was assured of a grim day when he woke up, was that Andre seemed to like him. The rainy day in miniature had impressed Andre so much that he'd immediately dragged Naram into his own room to get Naram up to speed with what he was working on. It was hard to make sense of. Andre had painted the walls with a glossy white paint so you could draw on everything, so equations ran haphazard along the walls and even the ceiling -- somehow. Andre was actually running three projects simultaneously. The one for his PhD had something to do with a theoretical exploration of time travel which, and Andre had almost teared up at this point in his energetic mini-lecture, Andre was concluding was basically impossible. Hearing that actually made Naram sad. Countless science fiction stories thrown into the proverbial incinerator, a large chunk of his boyhood. No matter, Andre had quickly recovered, because Andre was far more excited about his other two projects. Real world applications because, said Andre, what was the point if all your work didn't exist beyond the pages of some tedious book whose pages would one day wither and die, being read by no more than -- if we're being honest -- like, five people? Anyhow the first project was currently in progress, and occupied Andre's time three to four times per week. He was managing a Pipsqueak Football League team, the Hanover Huns, using the latest and greatest analytics. He said he was going to transform the team into a Championship Contender. Guaranteed it. They were currently 1 and 3, but he said with what he was currently working on -- a revolutionary new offense, a cross between the Spread and Wishbone (and Naram was really lost at this point) -- he expected the team would turn the corner any minute. Contingent upon whether or not a kid named Kurt Helms would take his head out of his ass and throw the ball further than ten yards. Naram discovered later that the kids in the league were 8 - 10 years old.
+
+Andre's other project was theoretical for the moment. It's just a fact, said Andre, that intelligent people are more drawn to a life of crime than their dumber counterparts. A real burden. It's why basically every semi-smart person in existence has given serious thought, at least once, to how they'd go about robbing a bank. Most think they can get away with it too. Andre is sure of it. The mass of dry erase ink looked like crime of passion against the wall and not at all like anything that might help one rob a bank and live to tell the tale. Andre said there had been hiccups, but he was still excited. He hinted that cloud cover might come in handy.
+
+"So Andre's a sociopath and almost defintely going to do some jail time at some point in the future," said Jin. She was reclined next to Naram on his bed, just a mattress on the floor in a corner of the room.
+
+"For strangling a ten year old or grand theft. Nice guy though."
+
+"Sure, sure. Did you meet the other one, what's his name..."
+
+"Deepak. No. Studying I guess."
+
+"Ooh. Guess that means you won't have to be the buzzkill roommate after all."
+
+"I know. Huge relief."
+
+Naram closed his eyes and drifted along the wavering partition between consciousness and sleep. He heard Jin ruffling through some papers. "What's Project Witchdoctor?" she asked. Naram caught Jin by surprise as he pushed off the bed, bounded to where she stood, and snatched away the bundle of papers.
+
+"No. That's none of your business." he said.
+
+"Sorry."
+
+"Don't tell anyone about this. Say you won't tell. Not even DQ."
+
+"It's not that big a deal."
+
+"Say it. Or you're done."
+
+"Jesus. What could it possibly," she saw the stern look on his face, "sure. I won't say anything."
+
+"Good." Naram walked to his backpack and placed the papers inside. "I guess you can leave now. Party's over."
+
+Jin was incredulous. "Unbelievable."
+
+"We've got a lot of work to do tomorrow," said Naram when Jin was about to leave.
+
+"Of course *Mr. Nazari*." She slammed the door.
+
+"Smooth," yelled Andre from his room. Naram could hear him easily with the walls thin as they were.
+
+"Like you know." Naram said back.
+
+"I do."
+
+"Oh? Is that according to your *analytics*?"
+
+"As a matter of fact I am in the process of running the numbers right now, gimme a sec. Ugh."
+
+"That bad? What do they say?"
+
+"That you fucked up."
+
+"Great."
+---
+(DQ tries to get to the bottom of what Jin thinks)
+---
+
+(Naram runs the machine outside with Jin)
+---
+(Naram receives a couple )
+
+
+
+
+
 
 ---
 ### The Run
