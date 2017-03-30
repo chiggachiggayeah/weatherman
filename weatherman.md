@@ -1134,7 +1134,7 @@ Jin walked to the front door. She knocked. No one answered.
 
 "But, do you even know who these people are ma'am?" asked the man.
 
-"No, but if they're asking for Paul maybe they're his friends. And if they're not, at least they know Paul exists, so they're potential friends. Paul needs friends Antoine. And if they're hear to kill him, I'll be sad, but that's not entirely bad either. I'd have my basement back at least." She slapped her hand with the racket. "Alright Antoine lets play a couple. I think it's my day."
+"No, but if they're asking for Paul maybe they're his friends. And if they're not, at least they know Paul exists, so they're potential friends. Paul needs friends Antoine. And if they're here to kill him, I'll be sad, but that's not entirely bad either. I'd have my basement back at least." She slapped her hand with the racket. "Alright Antoine lets play a couple. I think it's my day."
 
 The door to the basement was closed. Even so, a slightly moldy smell seeped into the hall through the sliver of space between the door and the floor. And there was the smell of pizza blended into that but it wasn't quite right, like the cheese had long since dried out and the pepperonis -- exposed to the open air -- had changed into something somehow less than pepperoni. Jin slammed the butt of her fist into the door. "Paul?" Something fell hard, and then scrambled over to the door, slowing up as it neared.
 
@@ -2266,7 +2266,7 @@ Jin checked her phone. "Oh. Ok. Um, well, feel free to say no, like I understand
 
 "Sure!" Then, a little less eagerly, "Yeah, that uh, that won't be a problem. Not imposing at all. You know, if it's just a couple hours."
 
-"Great!" Zero words, three steps, a hop, and she was in Naram's bed, and she burrowed under the covers and must've fallen asleep within five minutes. Naram sat in his desk, trying not to look at the girl drooling away on his pillow, and failing about every forty-five seconds. He wasn't a hypochondriac or one of those irrationally concerned with the everyday microbial onslaught each us finds ourselves enmeshed in from the moment of our birth. But this was foreign spittle where he put his head every night. That it was a young woman's drool, and a woman with impeccable oral hygiene (albeit a pickly brand of halitosis), did little to assuage Naram's concern. Tonight, inevitably, he would roll over and find his nose against crusty oral residue, and it would not be his own. He could wash the pillow. It took exactly 143 steps to get to the washing machine and back if you took the steps two at a time. It had been such a demanding day that Naram wasn't sure if he had 143 steps in him. And truth be told this was better than his usual pastimes of pouring of notes or throwing a tennis ball against the wall and failing to catch it. He turned once again from the ostensible work on his desk to inspect Jin and the thoughtless up and down of her small frame. His eyes followed the current of the limpid stream flowing onto his pillow with a morbid fascination and then --
+"Great!" Zero words, three steps, a hop, and she was in Naram's bed, and she burrowed under the covers and must've fallen asleep within five minutes. Naram sat in his desk, trying not to look at the girl drooling away on his pillow, and failing about every forty-five seconds. He wasn't a hypochondriac or one of those irrationally concerned with the everyday microbial onslaught each us finds ourselves enmeshed in from the moment of our birth. But this was foreign spittle where he put his head every night. That it was a young woman's drool, and a woman with impeccable oral hygiene (albeit a pickly brand of halitosis), did little to assuage Naram's concern. Tonight, inevitably, he would roll over and find his nose against crusty oral residue, and it would not be his own. He could wash the pillow. It took exactly 143 steps to get to the washing machine and back if you took the steps two at a time. It had been such a demanding day that Naram wasn't sure if he had 143 steps in him. And truth be told this was better than his usual pastimes of pouring over notes or throwing a tennis ball against the wall and failing to catch it. He turned once again from the ostensible work on his desk to inspect Jin and the thoughtless up and down of her small frame. His eyes followed the current of the limpid stream flowing onto his pillow with a morbid fascination and then --
 
 *Knock, knock, knock!* Jin eyes grudgingly opened. Naram was caught. It didn't help that he'd taken his pants off. It was what he normally did when he was by himself in his room, which was always, and he was doing her a favor and she was asleep. He saw her eyes register his lack of pants. "Not what it looks like." He knew saying that somehow made it worse. *Knock, knock, knock* Naram opened the door to find a stout woman, maybe forty years old, glaring in the doorway and Ivan leaning against the wall behind her.
 
@@ -2367,7 +2367,7 @@ Moments later the machine was giving a tinny growl, alive with electricity. Mult
 
 And then it started to rain.
 
-"What's the hold up?" said Andre, just on the other side of the door. The door open and for an instant Andre saw the overcast ceiling, and gentle rainfall glittering in the laserlight. The instant expired, and the clouds vanished.
+"What's the hold up?" said Andre, just on the other side of the door. The door opened and for an instant Andre saw the overcast ceiling, and gentle rainfall glittering in the laserlight. The instant expired, and the clouds vanished.
 
 "Dope," said Andre.
 
@@ -2425,18 +2425,72 @@ Jin was incredulous. "Unbelievable."
 
 "Great."
 ---
-(DQ tries to get to the bottom of what Jin thinks)
----
-
 (Naram runs the machine outside with Jin)
+
+"Rejected." Goldstein kicked his feet on top of his desk. Hairy toes wiggled underneath the straps of birkenstocks. Birkenstocks which were now resting heavily upon and doing a real number on a pile of papers. "Don't worry. Freshman Seminar. Pop quizzes. Just to put the fear of god in 'em. Make sure they're doing the reading," he explained, unsolicited. "Now you might ask why I'm teaching a Freshman Seminar. If I can teach you one thing -- current profressor to maybe future professor -- *always* teach the freshman seminar. Freshman are incredibly...," here he winked at Naram, "malleable." No further explanation needed. Goldstein, in his birkenstocks, invariably distressed corderoy's, and turtlenecks, was every bit the protean academic idolized by the high-achieving female students at the college. Goldstein also had a penchant for inserting useless fragments of French and Latin into his speech, and the one time Naram had witnessed him "tickling" the acoustic guitar now sitting in a corner of the office was when he came in unexpectedly on a two person "strictly academic" *tet-a-tet* featuring Goldstein singing out of tune and strumming away from atop his desk while a blonde young woman stared on flushing and (Goldstein hoped) willing. In summary, Naram knew full well that when Goldstein used the word *malleable*, he was not referring to his pet students' minds.
+
+"Uh, thanks. Who rejected it?"
+
+"Oh. I did. It just seems to me that you should be focusing on your own research and less on rehashing ancient history. You're far behind, I'm sure I don't need to remind you. A shame...I had high hopes. *Have*. But, you've got to move on from this Meg-o-gel nonsense."
+
+"You know it was proven to work?"
+
+"*Proven*? I don't think so. Naram, that's it. Not open for discussion. Also, I want an update by the weekend. I think that'll be good for you. Give you something to focus on. Take your mind off these kinds of distractions."
+
+"Awesome."
+
+The door to the office cracked open and a mousey neophyte peeked in, smiling, trying to be vaguely sultry like she'd once seen in a movie. When she noticed Naram every watt of sexual energy ran aground. "Godric...I mean, uh, Mr., uh, Professor Goldstein should I come back?"
+
+"Oh. Betty!"
+
+"Bella," she corrected.
+
+"Sure. Come in. Mr. Nazari and I are done."
+
+Out in the hall, as he closed the door to the office, Naram caught the fringes of Goldstein's well-oiled routine. "Betty, did I ever tell you that I play guitar?"
 ---
-(Naram receives a couple )
+Meg-o-gel wasn't cheap. It could easily run Naram North of six hundred dollars, a hunk of change that wasn't exactly sitting around. He went to Andre with his predicament, since Jin still hadn't materialized post-party, and Deepak seemed to live in the lab. Andre retrieved a tome from his desk. A nest of rubberbands and twine gave everything they had to keep the overstuffed book's girth from rupturing the binding. All manner of sticky note, foreign pages "borrowed" from other texts, and a curious blue feather protruded from the tattered and coffee-stained pages. Once or twice Naram thought he saw it drip.
 
+"These are my schemes," said Andre, unfastening the bands and splaying the text on his bed, "I write every idea down."
 
+"Off course. For a rainy day."
 
+"Exactly. And there's gotta be something in here that can help you out. I've got an whole section for Get Rich Quick schemes." He flipped the pages, launching fetid particles up and into their faces. The smell was a potent foot fungus and curdled milk combo. Andre didn't seem to notice. "Here! This is it."
 
+"What is it?"
 
+"Black Jack!"
 
+"I'm not...what?"
+
+"I'll reach out to my contacts on the Alternative Student Recreation panel, founded to keep the kids around here from drinking themselves to death. They'll eat a Casino Royale night up! We'll turn the student center into fucking Monte Carlo!"
+
+"But where's the money?"
+
+"Psh! Easy. We'll count some cards. Load some decks. Get smashed. Make a quick buck. Honestly don't know how I forgot about this one."
+
+"Do you even know how to count cards?"
+
+"Um...do you *not*?"
+
+"Should I?"
+
+"Jesus. You've got much to learn padowan."
+---
+Andre rented suits for himself and Naram. Naram had never worn a suit before. He changed, and admired himself as he walked down the stairs. Andre was in the kitchen. He'd put his suit on hours earlier. He was making drinks.
+
+"How is everything," Naram yelled over the drink Andre was shaking. "Is that...strictly necessary?"
+
+"Doubly yes," Andre replied. "Turns out the Alternative Student Recreation crowd is anti-us-getting-blitzed on martinis. Also, this shit reads like something straight out of Bond movie."
+
+"Yeah about that. I was actually gonna ask for mine stirred."
+
+Andre stopped shaking. "Blasphemy."
+
+They had to ride their bikes to the Student Center. Naram careered into two mailboxes before they'd even gotten off of their street. If campus police enforced Biking Under the Influence, Naram would've certainly been tossed in the dirt and cuffed, admonished for the despicable act of not waiting to pedal before he'd sobered up. Reckless endangerment was still on the table in theory. Thankfully, by the time they'd gotten to the center, Naram was able to consistently avoid obstacles, like cars and passersby.
+
+---
+(Naram receives a couple phonecalls. One from guy who sounds overtly Canadian (Glick, who is later admonished by Fournier))
 ---
 ### The Run
 pilfering -- "
